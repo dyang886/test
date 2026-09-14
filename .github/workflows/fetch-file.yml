@@ -1,26 +1,26 @@
 name: Fetch file
 
-# Downloads a URL from a GitHub runner and publishes the result as an artifact.
-# Purpose: some trainer mirrors (e.g. *.narod.ru) are dropped at the TCP level by
-# certain ISPs, so they cannot be fetched from a local machine.
+# Downloads a URL from a GitHub runner and publishes it as an artifact.
 #
-# The download is attempted several ways in one run, because the upstream host is
-# flaky about TLS and about the Referer/UA it will answer. Every attempt is logged
-# with its curl exit code; nothing aborts the job, so one run tells us what works.
+# Why this exists: the target file sits on a mirror that Charter/Spectrum's CUJO
+# filter blocks at the TLS layer from home connections, while the site that links
+# to it (gtrainers.com) sits behind Cloudflare and challenges datacenter IPs. So
+# neither a home machine nor a runner can walk the whole chain - but the runner
+# CAN reach the mirror directly, which is what this does. Give it the final URL.
 #
-# Run it from the Actions tab -> "Fetch file" -> "Run workflow".
+# Run from the Actions tab -> "Fetch file" -> "Run workflow".
 
 on:
   workflow_dispatch:
     inputs:
       url:
-        description: "URL to download (redirects are followed)"
+        description: "Direct file URL (NOT the Cloudflare-fronted page)"
         required: true
-        default: "https://gtrainers.com/load/0-0-1-2934-20"
+        default: "https://ochki-v.narod.ru/trainers0520192/l/left4dead2/Left_4_Dead_2_V12.05.2019_Trainer_3_MrAntiFun.zips"
       referer:
         description: "Referer header to send"
         required: false
-        default: "https://gtrainers.com/load/categories/trainers/left_4_dead_2_trainer_8_v_2_1_4_7_lirw_ghl/28-1-0-2934"
+        default: "https://gtrainers.com/"
       filename:
         description: "Name to save the payload as"
         required: false
@@ -34,78 +34,65 @@ jobs:
     runs-on: ubuntu-latest
     steps:
       - name: Probe and download
+        # Default shell is `bash -eo pipefail`, which aborts the step on the first
+        # non-zero exit - useless here, since failing attempts are the diagnostic.
+        shell: bash {0}
         env:
           URL: ${{ inputs.url }}
           REFERER: ${{ inputs.referer }}
           FILENAME: ${{ inputs.filename }}
         run: |
-          set -uo pipefail   # deliberately NOT -e: a failed attempt must not kill the job
           mkdir -p out
           UA='Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/140.0 Safari/537.36'
+          HTTP_URL=$(printf '%s' "$URL" | sed 's#^https://#http://#')
 
-          # Resolve where the front-end redirects to, without downloading a body.
-          echo "::group::Resolve redirect chain for $URL"
-          curl -sS -I -L --max-time 60 -A "$UA" -e "$REFERER" "$URL" \
-               -D out/redirect-chain.txt -o /dev/null 2>out/redirect-err.txt
-          echo "curl exit: $?"
-          cat out/redirect-chain.txt 2>/dev/null
-          cat out/redirect-err.txt 2>/dev/null
-          echo "::endgroup::"
-
-          TARGET=$(grep -i '^location:' out/redirect-chain.txt 2>/dev/null | tail -1 | tr -d '\r' | sed 's/^[Ll]ocation: *//')
-          echo "Redirect target: ${TARGET:-<none>}"
-
-          HTTP_TARGET=""
-          if [ -n "$TARGET" ]; then
-            HTTP_TARGET=$(echo "$TARGET" | sed 's#^https://#http://#')
-          fi
+          echo "Runner egress IP: $(curl -sS -m 20 https://api.ipify.org || echo unknown)"
+          echo "Target: $URL"
+          echo
 
           attempt () {
             label="$1"; target="$2"; shift 2
-            [ -z "$target" ] && { echo "-- $label: no URL, skipped"; return 0; }
-            echo "::group::Attempt [$label] $target"
-            rc=0
+            if [ -z "$target" ]; then echo "-- [$label] no URL, skipped"; return 0; fi
+            echo "::group::[$label] $target"
             curl -sS -L --max-time 180 --retry 2 --retry-delay 3 \
                  -A "$UA" -e "$REFERER" \
                  -D "out/h_$label.txt" -o "out/p_$label.bin" \
                  -w 'http=%{http_code} size=%{size_download} time=%{time_total}s final=%{url_effective}\n' \
                  "$@" "$target" 2>"out/e_$label.txt"
-            rc=$?
-            echo "curl exit: $rc"
-            [ -s "out/e_$label.txt" ] && { echo "stderr:"; cat "out/e_$label.txt"; }
+            echo "curl exit: $?"
+            if [ -s "out/e_$label.txt" ]; then echo "stderr:"; cat "out/e_$label.txt"; fi
+            if [ -s "out/h_$label.txt" ]; then echo "headers:"; head -20 "out/h_$label.txt" | tr -d '\r'; fi
             if [ -f "out/p_$label.bin" ]; then
               sz=$(stat -c%s "out/p_$label.bin")
               echo "bytes: $sz"
-              [ "$sz" -gt 0 ] && [ "$sz" -lt 2048 ] && { echo "head:"; head -c 300 "out/p_$label.bin" | tr -d '\0'; echo; }
+              if [ "$sz" -gt 0 ] && [ "$sz" -lt 2048 ]; then
+                echo "head of body:"; head -c 300 "out/p_$label.bin" | tr -d '\0'; echo
+              fi
             fi
             echo "::endgroup::"
             return 0
           }
 
-          attempt frontend "$URL"
-          attempt mirror_https "$TARGET"
-          attempt mirror_http  "$HTTP_TARGET"
-          attempt mirror_noverify "$TARGET" -k
-          attempt mirror_bare "$TARGET" -H 'Referer;' -A 'curl/8'
+          attempt direct_https "$URL"
+          attempt direct_http  "$HTTP_URL"
+          attempt direct_noverify "$URL" -k
+          attempt direct_bare "$URL" -H 'Referer;' -A 'curl/8'
 
-          # Pick the largest plausible payload.
           best=""; bestsz=0
           for f in out/p_*.bin; do
             [ -f "$f" ] || continue
             sz=$(stat -c%s "$f")
-            if [ "$sz" -gt "$bestsz" ]; then bestsz=$sz; best=$f; fi
+            if [ "$sz" -gt "$bestsz" ]; then bestsz=$sz; best="$f"; fi
           done
 
           echo "=================================================="
           if [ -z "$best" ] || [ "$bestsz" -lt 2048 ]; then
-            echo "::error::No attempt returned a usable payload (largest was ${bestsz} bytes)."
-            echo "All attempts and their curl exit codes are in the groups above;"
-            echo "raw headers/stderr are uploaded in the artifact."
+            echo "::error::No attempt returned a usable payload (largest was ${bestsz} bytes). See groups above; headers/stderr are in the artifact."
             exit 1
           fi
 
           name="$FILENAME"
-          [ -z "$name" ] && name=$(basename "${TARGET:-$URL}" | sed 's/\.zips$/.zip/')
+          if [ -z "$name" ]; then name=$(basename "$URL" | sed 's/\.zips$/.zip/'); fi
           cp "$best" "out/$name"
           echo "Winning attempt: $best -> $name ($bestsz bytes)"
 
@@ -128,8 +115,7 @@ jobs:
             echo ""
             echo "| field | value |"
             echo "|---|---|"
-            echo "| front-end | \`$URL\` |"
-            echo "| mirror | \`${TARGET:-<none>}\` |"
+            echo "| url | \`$URL\` |"
             echo "| winning attempt | \`$best\` |"
             echo "| size | $bestsz bytes |"
             echo "| sha256 | \`$(sha256sum "out/$name" | cut -d' ' -f1)\` |"
