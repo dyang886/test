@@ -1,0 +1,110 @@
+name: Fetch file
+
+# Downloads a URL from a GitHub runner and publishes the result as an artifact.
+# Purpose: some trainer mirrors (e.g. *.narod.ru) are dropped at the TCP level by
+# certain ISPs, so they cannot be fetched from a local machine. A runner is not
+# behind that filter.
+#
+# Run it from the Actions tab -> "Fetch file" -> "Run workflow".
+
+on:
+  workflow_dispatch:
+    inputs:
+      url:
+        description: "URL to download (redirects are followed)"
+        required: true
+        default: "https://gtrainers.com/load/0-0-1-2934-20"
+      referer:
+        description: "Referer header to send (some hosts require it)"
+        required: false
+        default: "https://gtrainers.com/load/categories/trainers/left_4_dead_2_trainer_8_v_2_1_4_7_lirw_ghl/28-1-0-2934"
+      filename:
+        description: "Name to save as (blank = derive from the final URL)"
+        required: false
+        default: "Left_4_Dead_2_V12.05.2019_Trainer_3_MrAntiFun.zip"
+
+permissions:
+  contents: read
+
+jobs:
+  fetch:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Download
+        id: dl
+        env:
+          URL: ${{ inputs.url }}
+          REFERER: ${{ inputs.referer }}
+          FILENAME: ${{ inputs.filename }}
+        run: |
+          set -euo pipefail
+          mkdir -p out
+          UA='Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/140.0 Safari/537.36'
+
+          echo "Requesting: $URL"
+          code=$(curl -sSL --max-time 300 --retry 3 --retry-delay 5 \
+                      -A "$UA" -e "$REFERER" \
+                      -D out/headers.txt -o out/payload.bin \
+                      -w '%{http_code}' "$URL")
+          final=$(grep -i '^location:' out/headers.txt | tail -1 | tr -d '\r' | sed 's/^[Ll]ocation: *//')
+
+          echo "HTTP status : $code"
+          echo "Redirected  : ${final:-<none>}"
+          echo "::group::Response headers"
+          cat out/headers.txt
+          echo "::endgroup::"
+
+          if [ "$code" != "200" ]; then
+            echo "::error::Download failed with HTTP $code"
+            exit 1
+          fi
+
+          size=$(stat -c%s out/payload.bin)
+          echo "Size        : $size bytes"
+          if [ "$size" -lt 1024 ]; then
+            echo "::error::Payload is only $size bytes - probably an error page, not a file."
+            head -c 400 out/payload.bin || true
+            exit 1
+          fi
+
+          # Name it. The upstream mirror serves a bogus ".zips" extension.
+          name="$FILENAME"
+          if [ -z "$name" ]; then
+            name=$(basename "${final:-$URL}" | sed 's/\.zips$/.zip/')
+          fi
+          mv out/payload.bin "out/$name"
+
+          echo "::group::Identification"
+          file "out/$name"
+          sha256sum "out/$name"
+          md5sum "out/$name"
+          echo "::endgroup::"
+
+          if unzip -tqq "out/$name" 2>/dev/null; then
+            echo "::group::Archive contents"
+            unzip -l "out/$name"
+            echo "::endgroup::"
+          else
+            echo "Note: not a readable zip (may be rar/7z or password protected)."
+          fi
+
+          {
+            echo "### Fetched \`$name\`"
+            echo ""
+            echo "| field | value |"
+            echo "|---|---|"
+            echo "| source | \`$URL\` |"
+            echo "| final URL | \`${final:-<none>}\` |"
+            echo "| size | $size bytes |"
+            echo "| sha256 | \`$(sha256sum "out/$name" | cut -d' ' -f1)\` |"
+          } >> "$GITHUB_STEP_SUMMARY"
+
+          echo "artifact_name=$name" >> "$GITHUB_OUTPUT"
+
+      - name: Upload artifact
+        uses: actions/upload-artifact@v4
+        with:
+          name: fetched-file
+          path: out/
+          retention-days: 7
+          if-no-files-found: error
