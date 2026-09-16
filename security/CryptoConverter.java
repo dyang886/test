@@ -28,4 +28,24 @@ public class CryptoConverter implements AttributeConverter<String, String> {
         key = new SecretKeySpec(secret.getBytes(StandardCharsets.UTF_8), AES);
         cipher = Cipher.getInstance("AES/ECB/PKCS5Padding");
     }
+
+    @Override
+    public String convertToDatabaseColumn(String attribute) {
+        try {
+            cipher.init(Cipher.ENCRYPT_MODE, key);
+            return Base64.getEncoder().encodeToString(cipher.doFinal(attribute.getBytes(StandardCharsets.UTF_8)));
+        } catch (Exception e) {
+            throw new RuntimeException(e);
+        }
+    }
+
+    @Override
+    public String convertToEntityAttribute(String dbData) {
+        try {
+            cipher.init(Cipher.DECRYPT_MODE, key);
+            return new String(cipher.doFinal(Base64.getDecoder().decode(dbData)), StandardCharsets.UTF_8);
+        } catch (Exception e) {
+            throw new RuntimeException(e);
+        }
+    }
 }
