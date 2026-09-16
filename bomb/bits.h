@@ -1,0 +1,23 @@
+
+int tmax();
+int test_tmax();
+int bitOr(int, int);
+int test_bitOr(int, int);
+int negate(int);
+int test_negate(int);
+int isEqual(int, int);
+int test_isEqual(int, int);
+int addOK(int, int);
+int test_addOK(int, int);
+int signMag2TwosComp(int);
+int test_signMag2TwosComp(int);
+int satMul2(int);
+int test_satMul2(int);
+int dividePower2(int, int);
+int test_dividePower2(int, int);
+int replaceByte(int, int, int);
+int test_replaceByte(int, int, int);
+unsigned floatAbsVal(unsigned);
+unsigned test_floatAbsVal(unsigned);
+int floatIsEqual(unsigned, unsigned);
+int test_floatIsEqual(unsigned, unsigned);
