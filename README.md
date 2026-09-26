@@ -150,7 +150,7 @@ the breach yourselves made, you lose your city. It
 PAROLLES
 Why think you so? truly
 But now he's gone, and my idolatrous fancy
-You go so much backward when you fight. softly
+You go much backward when you fight. softly
 PAROLLES
 HELENA
 HELENA
