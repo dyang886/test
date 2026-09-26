@@ -87,7 +87,7 @@ A counsellor, a traitress, a dear;
 likes. 'Tis a commodity will the gloss with
 lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of request.
-Virginity, like an old courtier, her cap out
+Virginity, like an old courtier, her cap
 of fashion: richly suited, but unsuitable: just
 Look bleak i' the cold wind: withal, full oft we see
 so thou wilt be capable of a courtier's
