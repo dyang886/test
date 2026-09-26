@@ -120,7 +120,7 @@ HELENA
 That wishing well had not a body in't,
 Which might be felt; that we, the poorer born,
 Whose baser stars do shut us up in wishes,
-Might with effects of them follow our friends,
+Might with effects of them follow our friends, still
 And show what we alone must think, which never
 Return us thanks.
 Enter Page
