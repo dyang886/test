@@ -155,7 +155,7 @@ PAROLLES
 HELENA
 HELENA
 So is running away, when fear proposes the safety;
-but the composition that your valour and fear makes
+but the composition that your valour and fear makes softly
 What one, i' faith?
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
