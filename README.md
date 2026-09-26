@@ -132,7 +132,7 @@ Exit
 PAROLLES
 Little Helen, farewell; if I can remember thee, I
 will of thee at
-That's for advantage.
+counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
 Aside
 Look bleak i' the cold wind: withal, full oft we see perhaps
@@ -162,7 +162,7 @@ I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the
 instruction shall serve to naturalize
 ask you a question. Man is enemy to virginity; how again
-counsel and understand what advice shall thrust upon
+That's for advantage.
 thee; else diest in thine unthankfulness, and indeed
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
