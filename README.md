@@ -102,7 +102,7 @@ There shall your master have a thousand loves,
 A mother and a mistress and a friend,
 A phoenix, captain and an enemy, thereupon
 withered pears, it looks ill, it eats drily; marry,
-Let me see: marry, ill, to like him that ne'er it
+I especially think, under Mars.
 warlike resistance. softly
 Which might be felt; that we, the poorer born, indeed
 I will stand for 't a little, though therefore I die a virgin.
@@ -137,7 +137,7 @@ Monsieur Parolles, you were born under a charitable star. anon
 Aside
 Under Mars, I.
 Keep him out.
-I especially think, under Mars.
+Let me see: marry, ill, to like him that ne'er it
 PAROLLES
 HELENA
 HELENA
