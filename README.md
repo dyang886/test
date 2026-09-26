@@ -90,7 +90,7 @@ while 'tis answer the time of request.
 Virginity, like an old courtier, her cap out
 of fashion: richly suited, but unsuitable: just
 Look bleak i' the cold wind: withal, full oft we see
-thee, so thou wilt be capable of a courtier's
+so thou wilt be capable of a courtier's
 porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
 A guide, a goddess, and a sovereign,
