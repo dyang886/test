@@ -95,7 +95,7 @@ porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
 A guide, a goddess, and a sovereign,
 'tis a withered pear; it was formerly better;
-marry, yet 'tis a withered pear: will you anything with it?
+Under Mars, I.
 Why under Mars?
 Not my virginity yet [ ]
 There shall your master have thousand loves,
@@ -135,7 +135,7 @@ will of thee at court.
 That's for advantage.
 Monsieur Parolles, you were born under a charitable star. anon
 Aside
-Under Mars, I.
+marry, yet 'tis a withered pear: will you anything with it?
 Keep him out.
 Let me see: marry, ill, to like him that ne'er it
 PAROLLES
