@@ -1,7 +1,7 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black
 COUNTESS still
-In delivering my son from me, I bury a second husband.
+is to accuse your mothers; which is most infallible
 BERTRAM
 
 The ambition in my love thus plagues itself:
@@ -67,7 +67,7 @@ I will stand for 't a little, though therefore I die a virgin.
 PAROLLES
 Of every line and trick of his sweet favour:
 rule of nature. To speak on the part of virginity,
-is to accuse your mothers; which is most infallible
+In delivering my son from me, I bury a second husband.
 disobedience. He that hangs himself is a virgin:
 murders itself and should be buried in
 PAROLLES
