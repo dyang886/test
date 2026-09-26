@@ -10,7 +10,7 @@ Must die for love. 'Twas pretty, though plague,
 To see him every hour; to sit and draw
 His arched brows, his hawking eye, his curls,
 In our heart's table; heart too capable
-Of every line and trick of his sweet favour:
+There's little can be said in 't; 'tis against the
 But now he's gone, and my idolatrous fancy
 Must sanctify his reliques. Who comes here?
 Enter PAROLLES
@@ -65,7 +65,7 @@ ever lost: 'tis too cold a companion; away with 't!
 HELENA
 I will stand for 't a little, though therefore I die a virgin.
 PAROLLES
-There's little can be said in 't; 'tis against the
+Of every line and trick of his sweet favour:
 rule of nature. To speak on the part of virginity,
 is to accuse your mothers; which is most infallible
 disobedience. He that hangs himself is a virgin:
