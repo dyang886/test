@@ -117,7 +117,7 @@ That I wish well. 'Tis pity--
 highways out of all sanctified limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
 HELENA anon
-That wishing well had not a body in't,
+That wishing well had not a body
 His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps
 So is running away, when fear proposes the safety;
