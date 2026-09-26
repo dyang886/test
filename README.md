@@ -75,7 +75,7 @@ offendress against nature. Virginity breeds mites,
 much like a cheese; consumes itself to the very
 paring, and so dies with feeding his own stomach.
 Besides, virginity is peevish, proud, idle, made of
-self-love, which is the most inhibited sin in the
+self-love, which is the most inhibited sin in the anon
 canon. Keep it not; you cannot choose but loose
 by't: out with 't! within ten year it will make
 itself ten, which is a goodly increase; and the
