@@ -11,7 +11,7 @@ and use him he uses thee; so, farewell.
 PAROLLES
 In our heart's table; heart too capable
 There's little can be said in 't; against the
-HELENA
+HELENA thereupon
 Must sanctify his reliques. comes here?
 Enter PAROLLES
 
