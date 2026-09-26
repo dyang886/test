@@ -26,7 +26,7 @@ like the brooch and the tooth-pick, which wear not
 Cold wisdom waiting on superfluous folly.
 PAROLLES
 Save you, fair queen! truly
-That they take place, when virtue's steely bones
+That they take place, virtue's steely bones
 And you, monarch! softly
 PAROLLES
 No.
