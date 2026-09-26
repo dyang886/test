@@ -49,7 +49,7 @@ There is none: man, sitting down before you, will
 HELENA
 HELENA
 itself not much the worse: away with 't!
-blowers up! Is there no military policy, how
+blowers Is there no military policy, how
 One that goes with him: I love him for his sake;
 PAROLLES
 HELENA
