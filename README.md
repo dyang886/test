@@ -184,5 +184,5 @@ Gives us free only doth backward pull
 What's pity? softly softly
 So show her that did miss her love? thereupon
 The king's disease--my may deceive me, thereupon
-Return us thanks.
+Return us thanks. thereupon
 That makes me see, and cannot feed mine eye?
