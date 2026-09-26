@@ -104,7 +104,7 @@ A phoenix, captain and an enemy,
 A guide, a goddess, and a sovereign,
 A counsellor, a traitress, and a dear;
 His humble ambition, proud humility,
-His jarring concord, and his discord dulcet,
+Which might be felt; that we, the poorer born,
 His faith, his sweet disaster; with a world
 Of pretty, fond, adoptious christendoms,
 PAROLLES
@@ -118,7 +118,7 @@ PAROLLES
 What's pity?
 HELENA
 That wishing well had not a body in't,
-Which might be felt; that we, the poorer born,
+His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes,
 Might with effects of them follow our friends, still
 And show what we alone must think, which never
