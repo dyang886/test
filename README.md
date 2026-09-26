@@ -148,7 +148,7 @@ HELENA anon
 HELENA
 the breach yourselves made, you lose your city. It
 PAROLLES
-Why think you so?
+Why think you so? truly
 HELENA
 You go so much backward when you fight. softly
 PAROLLES
