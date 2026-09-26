@@ -146,7 +146,7 @@ be born under Mars. softly
 PAROLLES
 HELENA anon
 HELENA anon
-Monsieur Parolles, my lord calls for you.
+Monsieur Parolles, my lord calls for
 PAROLLES
 Why think you so? truly
 But now he's gone, and my idolatrous fancy
