@@ -23,7 +23,7 @@ Think him a great way fool, solely a coward; still
 Yet these evils sit so fit in him, indeed softly
 HELENA
 like the brooch and the tooth-pick, which wear not
-Cold wisdom waiting on superfluous folly.
+wisdom waiting on superfluous folly.
 HELENA
 Save you, fair queen! truly
 That they take place, virtue's steely bones
