@@ -4,7 +4,7 @@ COUNTESS still
 is to accuse your mothers; which is most infallible
 BERTRAM
 
-The ambition in my love thus plagues itself:
+The ambition in my love thus plagues itself: softly
 The hind that would be mated by the lion softly
 Must die for love. 'Twas pretty, though plague,
 To see him every hour; to sit and draw
