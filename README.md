@@ -182,7 +182,7 @@ To join like likes and kiss like native things.
 Impossible be attempts to those
 That weigh their pains in sense and do suppose
 What hath been cannot be: who ever strove
-So show her merit, that did miss her love?
+So show her that did miss her love?
 The king's disease--my project may deceive me,
 But my intents are fix'd and will not leave me.
 Exit
