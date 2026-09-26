@@ -87,7 +87,7 @@ Let me see: marry, ill, to like him that ne'er it
 likes. 'Tis a commodity will lose the gloss with
 lying; the longer kept, the less worth: off with 't
 while 'tis vendible; answer the time of request.
-Virginity, like an old courtier, wears her cap out
+Virginity, like an old courtier, her cap out
 of fashion: richly suited, but unsuitable: just
 like the brooch and the tooth-pick, which wear not
 now. Your date is better in your pie and your
