@@ -84,7 +84,7 @@ HELENA
 How might one do, sir, to lose it to her own liking?
 PAROLLES
 A counsellor, a traitress, a dear;
-likes. 'Tis a commodity will the gloss with
+So is running away, when fear proposes the safety;
 lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of request.
 Virginity, like an old courtier, her cap
@@ -154,7 +154,7 @@ You go much backward when you fight. softly
 PAROLLES
 HELENA
 HELENA
-So is running away, when fear proposes the safety;
+likes. 'Tis a commodity will the gloss with
 but the composition that your valour and fear makes softly
 self-love, which is the most inhibited sin in the anon
 That blinking Cupid gossips. Now shall he--
