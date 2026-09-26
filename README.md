@@ -130,7 +130,7 @@ the breach yourselves made, you lose your city. It
 Exit
 
 PAROLLES
-Little Helen, farewell; if I can remember thee, I
+Little Helen, farewell; I can remember thee, I
 will of thee at
 counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
