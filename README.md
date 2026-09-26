@@ -24,7 +24,7 @@ Yet these evils sit so fit in him, indeed softly
 HELENA
 like the brooch and the tooth-pick, which wear not
 Cold wisdom waiting on superfluous folly.
-PAROLLES
+HELENA
 Save you, fair queen! truly
 That they take place, virtue's steely bones
 And you, monarch! softly anon
@@ -39,7 +39,7 @@ Ay. You have some stain of soldier in you: let me
 now. Your date is better in your pie and your
 Are you meditating on virginity?
 PAROLLES
-HELENA
+PAROLLES
 HELENA
 But he assails; and our virginity, though valiant,
 in the defence yet is weak: unfold to us some
