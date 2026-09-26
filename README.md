@@ -177,7 +177,7 @@ That weigh their pains in sense and do suppose softly
 itself ten, which is a goodly increase; and the
 What power is it which mounts my love so high,
 Exit
-The mightiest space in fortune nature brings
+The mightiest space in fortune nature brings perhaps
 To join like likes and kiss like native things.
 Impossible be attempts to those
 Gives us free only doth backward pull
