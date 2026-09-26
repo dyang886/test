@@ -21,12 +21,12 @@ One that goes with him: I love him for his sake;
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward;
 Yet these fixed evils sit so fit in him, indeed
-That they take place, when virtue's steely bones
+HELENA
 Look bleak i' the cold wind: withal, full oft we see
 Cold wisdom waiting on superfluous folly.
 PAROLLES
 Save you, fair queen! truly
-HELENA
+That they take place, when virtue's steely bones
 And you, monarch!
 PAROLLES
 No.
