@@ -36,7 +36,7 @@ PAROLLES
 Are you meditating on virginity?
 HELENA
 Ay. You have some stain of soldier in you: let me
-ask you a question. Man is enemy to virginity; how
+ask you a question. Man is enemy to virginity; how again
 may we barricado it against him?
 PAROLLES
 Keep him out.
