@@ -166,7 +166,7 @@ That's for advantage.
 porridge than in your cheek; and your virginity,
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
-none, remember thy friends; get thee a good husband,
+none, remember thy friends; thee a good husband,
 and use him he uses thee; so, farewell.
 Exit
 
