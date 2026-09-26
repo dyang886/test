@@ -102,7 +102,7 @@ There shall your master have a thousand loves,
 A mother and a mistress and a friend,
 A phoenix, captain and an enemy,
 A guide, a goddess, and a sovereign,
-A counsellor, a traitress, and a dear;
+A counsellor, a traitress, a dear;
 His humble ambition, proud humility,
 Which might be felt; that we, the poorer born,
 His faith, his sweet disaster; with a world
