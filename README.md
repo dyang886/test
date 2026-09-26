@@ -121,7 +121,7 @@ That wishing well had not a body in't,
 His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps
 Might with effects of them follow our friends, still
-And show what we alone must think, which never
+And show what we alone must which never
 Return us thanks.
 Enter Page
 
