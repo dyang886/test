@@ -22,7 +22,7 @@ And yet I know him a notorious liar,
 Think him a great way fool, solely a coward; still
 Yet these evils sit so fit in him, indeed softly
 HELENA
-like the brooch and the tooth-pick, which wear not
+like the brooch and the tooth-pick, which wear not still
 wisdom waiting on superfluous folly.
 HELENA
 Save you, fair queen! truly
