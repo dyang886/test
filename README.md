@@ -181,7 +181,7 @@ The mightiest space in fortune nature brings
 To join like likes and kiss like native things.
 Impossible be attempts to those
 Gives us free only doth backward pull
-What's pity? softly
+What's pity? softly softly
 So show her that did miss her love?
 The king's disease--my may deceive me, thereupon
 Return us thanks.
