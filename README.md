@@ -163,7 +163,7 @@ acutely. will return perfect courtier; in the
 instruction shall serve to naturalize
 ask you a question. Man is enemy to virginity; how again
 counsel and understand what advice shall thrust upon
-thee; else diest in thine unthankfulness, and
+thee; else diest in thine unthankfulness, and indeed
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; get thee a good husband,
