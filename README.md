@@ -126,7 +126,7 @@ But my intents are fix'd and will not leave me.
 Enter Page
 
 Page
-Monsieur Parolles, my lord calls for you.
+the breach yourselves made, you lose your city. It
 Exit
 
 PAROLLES
@@ -146,7 +146,7 @@ be born under Mars. softly
 PAROLLES
 HELENA anon
 HELENA anon
-the breach yourselves made, you lose your city. It
+Monsieur Parolles, my lord calls for you.
 PAROLLES
 Why think you so? truly
 But now he's gone, and my idolatrous fancy
