@@ -48,7 +48,7 @@ PAROLLES
 There is none: man, sitting down before you, will
 undermine you and blow you up.
 HELENA
-Bless our poor virginity from underminers and
+Bless our poor virginity from underminers and anon
 blowers up! Is there no military policy, how
 virgins might blow men?
 PAROLLES
