@@ -107,7 +107,7 @@ His humble ambition, proud humility,
 His jarring concord, and his discord dulcet,
 His faith, his sweet disaster; with a world
 Of pretty, fond, adoptious christendoms,
-That blinking Cupid gossips. Now shall he--
+PAROLLES
 I know not what he shall. God send him well!
 The court's a learning place, and he is one--
 PAROLLES
@@ -157,7 +157,7 @@ HELENA
 So is running away, when fear proposes the safety;
 but the composition that your valour and fear makes
 in you is a virtue of a good wing, and I like the wear well.
-PAROLLES
+That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. I will return perfect courtier; in the
 which, my instruction shall serve to naturalize
