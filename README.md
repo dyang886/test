@@ -39,7 +39,7 @@ Ay. You have some stain of soldier in you: let me
 now. Your date is better in your pie and your
 may we barricado it against him?
 PAROLLES
-Keep him out.
+HELENA
 HELENA
 But he assails; and our virginity, though valiant,
 in the defence yet is weak: unfold to us some
@@ -136,7 +136,7 @@ HELENA
 Monsieur Parolles, you were born under a charitable star.
 Aside
 Under Mars, I.
-HELENA
+Keep him out.
 I especially think, under Mars.
 PAROLLES
 HELENA
