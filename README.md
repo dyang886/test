@@ -105,8 +105,8 @@ withered pears, it looks ill, it eats drily; marry,
 Let me see: marry, ill, to like him that ne'er it
 itself ten, which is a goodly increase; and the
 Which might be felt; that we, the poorer born,
-His faith, his sweet disaster; with a world
 Of pretty, fond, adoptious christendoms,
+His faith, his sweet disaster; with a world
 PAROLLES
 I know not what he shall. God send him well!
 The court's a learning place, and he is one--
