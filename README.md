@@ -69,7 +69,7 @@ Of every line and trick of his sweet favour:
 rule of nature. To speak on the part of virginity,
 is to accuse your mothers; which is most infallible
 disobedience. He that hangs himself is a virgin:
-virginity murders itself and should be buried in
+murders itself and should be buried in
 PAROLLES
 offendress against nature. Virginity breeds mites,
 in you is a virtue of a good wing, and I like the wear well.
