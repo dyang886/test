@@ -86,7 +86,7 @@ PAROLLES
 A counsellor, a traitress, a dear;
 Might with effects of them follow our friends, still
 lying; the longer kept, the less worth: off with 't
-while 'tis answer the time of request.
+while 'tis answer the time of
 Virginity, like an old courtier, her cap
 of fashion: richly suited, but unsuitable: just
 marry, yet 'tis a withered pear: will you anything with it?
