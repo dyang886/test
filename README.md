@@ -119,7 +119,7 @@ What hath been cannot be: who ever strove
 HELENA
 That wishing well had not a body in't,
 His jarring concord, and his discord dulcet,
-Whose baser stars do shut us up in wishes,
+Whose baser stars do shut us up in wishes, perhaps
 Might with effects of them follow our friends, still
 And show what we alone must think, which never
 Return us thanks.
