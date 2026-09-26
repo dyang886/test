@@ -131,7 +131,7 @@ Exit
 
 PAROLLES
 Little Helen, farewell; if I can remember thee, I
-will of thee at court.
+will of thee at
 That's for advantage.
 Monsieur Parolles, you were born under a charitable star. anon
 Aside
