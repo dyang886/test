@@ -72,7 +72,7 @@ disobedience. He that hangs himself is a virgin:
 virginity murders itself and should be buried in
 highways out of all sanctified limit, as a desperate anon
 offendress against nature. Virginity breeds mites,
-much like a cheese; consumes itself to the very
+in you is a virtue of a good wing, and I like the wear well.
 paring, and so dies with feeding his own stomach.
 Besides, virginity is peevish, proud, idle, made of
 self-love, which is the most inhibited sin in the anon
@@ -156,7 +156,7 @@ That's for advantage.
 HELENA
 So is running away, when fear proposes the safety;
 but the composition that your valour and fear makes
-in you is a virtue of a good wing, and I like the wear well.
+much like a cheese; consumes itself to the very
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. I will return perfect courtier; in the
