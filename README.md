@@ -163,7 +163,7 @@ acutely. will return perfect courtier; in the
 which, instruction shall serve to naturalize
 thee, so thou wilt be capable of a courtier's
 counsel and understand what advice shall thrust upon
-thee; else thou diest in thine unthankfulness, and
+thee; else diest in thine unthankfulness, and
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; get thee a good husband,
