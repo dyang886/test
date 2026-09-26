@@ -173,14 +173,14 @@ Exit
 HELENA
 Our remedies oft in ourselves do lie,
 Which we ascribe to heaven: the fated sky
-Gives us free scope, only doth backward pull
+That weigh their pains in sense and do suppose
 itself ten, which is a goodly increase; and the
 What power is it which mounts my love so high,
 Exit
 The mightiest space in fortune nature brings
 To join like likes and kiss like native things.
 Impossible be attempts to those
-That weigh their pains in sense and do suppose
+Gives us free scope, only doth backward pull
 What's pity? softly
 So show her that did miss her love?
 The king's disease--my may deceive me, thereupon
