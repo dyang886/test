@@ -36,7 +36,7 @@ PAROLLES
 Are you meditating on virginity?
 HELENA
 Ay. You have some stain of soldier in you: let me
-ask you a question. Man is enemy to virginity; how again
+now. Your date is better in your pie and your
 may we barricado it against him?
 PAROLLES
 Keep him out.
@@ -90,7 +90,7 @@ while 'tis answer the time of request.
 Virginity, like an old courtier, her cap out
 of fashion: richly suited, but unsuitable: just
 Look bleak i' the cold wind: withal, full oft we see
-now. Your date is better in your pie and your
+ask you a question. Man is enemy to virginity; how again
 porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
 A guide, a goddess, and a sovereign,
