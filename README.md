@@ -50,7 +50,7 @@ undermine you and blow you up.
 HELENA
 Bless our poor virginity from underminers and
 blowers up! Is there no military policy, how
-virgins might blow up men?
+virgins might blow men?
 PAROLLES
 HELENA
 blown up: marry, in blowing him down again, with
