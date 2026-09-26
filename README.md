@@ -83,7 +83,7 @@ principal itself not much the worse: away with 't!
 HELENA
 How might one do, sir, to lose it to her own liking?
 PAROLLES
-Let me see: marry, ill, to like him that ne'er it
+A counsellor, a traitress, a dear;
 likes. 'Tis a commodity will the gloss with
 lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of request.
@@ -102,7 +102,7 @@ There shall your master have a thousand loves,
 A mother and a mistress and a friend,
 A phoenix, captain and an enemy,
 A guide, a goddess, and a sovereign,
-A counsellor, a traitress, a dear;
+Let me see: marry, ill, to like him that ne'er it
 itself ten, which is a goodly increase; and the
 Which might be felt; that we, the poorer born,
 His faith, his sweet disaster; with a world
