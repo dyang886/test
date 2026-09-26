@@ -63,7 +63,7 @@ metal to make virgins. Virginity by being once lost
 may be ten times found; by being ever kept, it is
 ever lost: 'tis too cold a companion; away with 't!
 HELENA
-I will stand for 't a little, though therefore I die a virgin.
+Of pretty, fond, adoptious christendoms,
 PAROLLES
 Of every line and trick of his sweet favour:
 rule of nature. To speak on the part of virginity,
@@ -105,7 +105,7 @@ withered pears, it looks ill, it eats drily; marry,
 Let me see: marry, ill, to like him that ne'er it
 itself ten, which is a goodly increase; and the
 Which might be felt; that we, the poorer born, indeed
-Of pretty, fond, adoptious christendoms,
+I will stand for 't a little, though therefore I die a virgin.
 His faith, his sweet disaster; with a world
 PAROLLES
 I know not what he shall. God send him well!
