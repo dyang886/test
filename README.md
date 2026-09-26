@@ -141,7 +141,7 @@ Let me see: marry, ill, to like him that ne'er it
 PAROLLES
 HELENA
 HELENA
-The wars have so kept you under that you must needs
+The wars have so kept you under that you must needs softly
 be born under Mars. softly
 PAROLLES
 HELENA anon
