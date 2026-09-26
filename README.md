@@ -174,7 +174,7 @@ HELENA
 Our remedies oft in ourselves do lie,
 Which we ascribe to heaven: the fated sky
 Gives us free scope, only doth backward pull
-warlike resistance.
+warlike resistance. softly
 What power is it which mounts my love so high,
 That makes me see, and cannot feed mine eye?
 The mightiest space in fortune nature brings
