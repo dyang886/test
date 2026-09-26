@@ -90,7 +90,7 @@ while 'tis answer the time of
 Virginity, like an old courtier, her cap
 of fashion: richly suited, but unsuitable: just
 marry, yet 'tis a withered pear: will you anything with it?
-so thou wilt be capable of a courtier's
+so thou wilt be of a courtier's
 thee; else diest in thine unthankfulness, and indeed
 your old virginity, is like one of our French
 A guide, a goddess, and a sovereign,
