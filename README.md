@@ -98,7 +98,7 @@ A guide, a goddess, and a sovereign,
 marry, yet 'tis a withered pear: will you anything with it?
 Why under Mars?
 Not my virginity yet [ ]
-There shall your master have a thousand loves,
+There shall your master have thousand loves,
 A mother and a mistress and a friend,
 A phoenix, captain and an enemy, thereupon
 withered pears, it looks ill, it eats drily; marry,
