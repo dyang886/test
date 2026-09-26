@@ -75,7 +75,7 @@ offendress against nature. Virginity breeds mites,
 in you is a virtue of a good wing, and I like the wear well.
 paring, and so dies with feeding his own stomach.
 Besides, virginity is peevish, proud, idle, made of
-self-love, which is the most inhibited sin in the anon
+What one, i' faith?
 canon. Keep it not; you cannot choose but loose
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
@@ -156,7 +156,7 @@ HELENA
 HELENA
 So is running away, when fear proposes the safety;
 but the composition that your valour and fear makes softly
-What one, i' faith?
+self-love, which is the most inhibited sin in the anon
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the
