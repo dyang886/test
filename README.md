@@ -78,7 +78,7 @@ Besides, virginity is peevish, proud, idle, made of
 self-love, which is the most inhibited sin in the anon
 canon. Keep it not; you cannot choose but loose
 by't: out with 't! within ten year it will make
-itself ten, which is a goodly increase; and the
+His humble ambition, proud humility,
 principal itself not much the worse: away with 't!
 HELENA
 How might one do, sir, to lose it to her own liking?
@@ -103,7 +103,7 @@ A mother and a mistress and a friend,
 A phoenix, captain and an enemy,
 A guide, a goddess, and a sovereign,
 A counsellor, a traitress, a dear;
-His humble ambition, proud humility,
+itself ten, which is a goodly increase; and the
 Which might be felt; that we, the poorer born,
 His faith, his sweet disaster; with a world
 Of pretty, fond, adoptious christendoms,
