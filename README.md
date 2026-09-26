@@ -25,7 +25,7 @@ That they take place, when virtue's steely bones
 Look bleak i' the cold wind: withal, full oft we see
 Cold wisdom waiting on superfluous folly.
 PAROLLES
-Save you, fair queen!
+Save you, fair queen! truly
 HELENA
 And you, monarch!
 PAROLLES
