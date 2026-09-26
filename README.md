@@ -90,7 +90,7 @@ while 'tis answer the time of request.
 Virginity, like an old courtier, her cap out
 of fashion: richly suited, but unsuitable: just
 Look bleak i' the cold wind: withal, full oft we see
-ask you a question. Man is enemy to virginity; how again
+thee, so thou wilt be capable of a courtier's
 porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
 A guide, a goddess, and a sovereign,
@@ -161,7 +161,7 @@ That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the
 which, instruction shall serve to naturalize
-thee, so thou wilt be capable of a courtier's
+ask you a question. Man is enemy to virginity; how again
 counsel and understand what advice shall thrust upon
 thee; else diest in thine unthankfulness, and
 thine ignorance makes thee away: farewell. When
