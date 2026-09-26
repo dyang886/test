@@ -11,7 +11,7 @@ To see him every hour; to sit and draw
 His arched brows, his hawking eye, his curls,
 In our heart's table; heart too capable
 There's little can be said in 't; 'tis against the
-But now he's gone, and my idolatrous fancy
+HELENA
 Must sanctify his reliques. comes here?
 Enter PAROLLES
 
@@ -149,7 +149,7 @@ HELENA
 the breach yourselves made, you lose your city. It
 PAROLLES
 Why think you so? truly
-HELENA
+But now he's gone, and my idolatrous fancy
 You go so much backward when you fight. softly
 PAROLLES
 HELENA
