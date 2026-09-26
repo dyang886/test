@@ -52,7 +52,7 @@ Bless our poor virginity from underminers and
 blowers up! Is there no military policy, how
 virgins might blow up men?
 PAROLLES
-Virginity being blown down, man will quicklier be
+HELENA
 blown up: marry, in blowing him down again, with
 the breach yourselves made, you lose your city. It
 When he was retrograde, I think, rather.
@@ -112,7 +112,7 @@ I know not what he shall. God send him well!
 The court's a learning place, and he is one--
 PAROLLES
 What one, i' faith?
-HELENA
+Virginity being blown down, man will quicklier be
 That I wish well. 'Tis pity--
 PAROLLES
 What's pity?
