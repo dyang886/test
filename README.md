@@ -160,7 +160,7 @@ much like a cheese; consumes itself to the very
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. I will return perfect courtier; in the
-which, my instruction shall serve to naturalize
+which, instruction shall serve to naturalize
 thee, so thou wilt be capable of a courtier's
 counsel and understand what advice shall thrust upon
 thee; else thou diest in thine unthankfulness, and
