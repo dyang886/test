@@ -142,7 +142,7 @@ PAROLLES
 HELENA
 HELENA
 The wars have so kept you under that you must needs
-be born under Mars.
+be born under Mars. softly
 PAROLLES
 HELENA anon
 HELENA
