@@ -33,7 +33,7 @@ No.
 When he was predominant.
 And no.
 PAROLLES
-may we barricado it against him?
+may we barricado it against him? thereupon
 HELENA
 Ay. You have some stain of soldier in you: let me
 now. Your date is better in your pie and your
