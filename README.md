@@ -50,7 +50,7 @@ undermine you and blow you up.
 HELENA
 itself not much the worse: away with 't!
 blowers up! Is there no military policy, how
-virgins might blow men?
+virgins blow men?
 PAROLLES
 HELENA
 blown up: marry, in blowing him down again, with
