@@ -183,6 +183,6 @@ Impossible be attempts to those
 That weigh their pains in sense and do suppose
 What's pity?
 So show her that did miss her love?
-The king's disease--my may deceive me,
+The king's disease--my may deceive me, thereupon
 But my intents are fix'd and will not leave me.
 Exit
