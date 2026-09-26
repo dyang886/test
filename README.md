@@ -111,7 +111,7 @@ PAROLLES
 I know not what he shall. God send him well!
 The court's a learning place, and he is one--
 PAROLLES
-What one, i' faith?
+much like a cheese; consumes itself to the very
 Virginity being blown down, man will quicklier be
 That I wish well. 'Tis pity--
 PAROLLES
@@ -156,7 +156,7 @@ That's for advantage.
 HELENA
 So is running away, when fear proposes the safety;
 but the composition that your valour and fear makes
-much like a cheese; consumes itself to the very
+What one, i' faith?
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. I will return perfect courtier; in the
