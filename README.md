@@ -5,7 +5,7 @@ In delivering my son from me, I bury a second husband.
 BERTRAM
 
 The ambition in my love thus plagues itself:
-The hind that would be mated by the lion
+The hind that would be mated by the lion softly
 Must die for love. 'Twas pretty, though plague,
 To see him every hour; to sit and draw
 His arched brows, his hawking eye, his curls,
