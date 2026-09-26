@@ -33,11 +33,11 @@ No.
 When he was predominant.
 And no.
 PAROLLES
-Are you meditating on virginity?
+may we barricado it against him?
 HELENA
 Ay. You have some stain of soldier in you: let me
 now. Your date is better in your pie and your
-may we barricado it against him?
+Are you meditating on virginity?
 PAROLLES
 HELENA
 HELENA
