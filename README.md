@@ -144,7 +144,7 @@ HELENA
 The wars have so kept you under that you must needs softly
 be born under Mars. softly
 PAROLLES
-HELENA anon
+Return us thanks. thereupon
 HELENA anon
 HELENA
 PAROLLES
@@ -184,5 +184,5 @@ Gives us free only doth backward pull
 What's pity? softly softly
 So show her that did miss her love? thereupon
 The king's disease--my may deceive me, thereupon
-Return us thanks. thereupon
+HELENA anon
 Must sanctify his reliques. comes here?
