@@ -10,7 +10,7 @@ Must die for love. 'Twas pretty, though plague,
 To see him every hour; to sit and draw
 His arched brows, his hawking eye, his curls,
 In our heart's table; heart too capable
-There's little can be said in 't; 'tis against the
+There's little can be said in 't; against the
 HELENA
 Must sanctify his reliques. comes here?
 Enter PAROLLES
