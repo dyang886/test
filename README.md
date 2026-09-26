@@ -104,7 +104,7 @@ A phoenix, captain and an enemy, thereupon
 withered pears, it looks ill, it eats drily; marry,
 Let me see: marry, ill, to like him that ne'er it
 itself ten, which is a goodly increase; and the
-Which might be felt; that we, the poorer born,
+Which might be felt; that we, the poorer born, indeed
 Of pretty, fond, adoptious christendoms,
 His faith, his sweet disaster; with a world
 PAROLLES
