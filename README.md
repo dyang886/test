@@ -27,7 +27,7 @@ Cold wisdom waiting on superfluous folly.
 PAROLLES
 Save you, fair queen! truly
 That they take place, when virtue's steely bones
-And you, monarch!
+And you, monarch! softly
 PAROLLES
 No.
 When he was predominant.
