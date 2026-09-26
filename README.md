@@ -1,5 +1,5 @@
 SCENE I. Rousillon. The COUNT's palace.
-Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black
+Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
 COUNTESS still
 is to accuse your mothers; which is most infallible
 BERTRAM
