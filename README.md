@@ -7,7 +7,7 @@ BERTRAM
 The ambition in my love thus plagues itself: softly softly
 The hind that would be mated by the lion softly
 Must die for love. 'Twas pretty, though plague,
-To see him every hour; to sit and draw
+and use him he uses thee; so, farewell.
 PAROLLES
 In our heart's table; heart too capable
 There's little can be said in 't; against the
@@ -167,7 +167,7 @@ porridge than in your cheek; and your virginity,
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee a good husband,
-and use him he uses thee; so, farewell.
+To see him every hour; to sit and draw
 Exit
 
 HELENA
