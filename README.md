@@ -87,7 +87,7 @@ A counsellor, a traitress, a dear;
 Might with effects of them follow our friends, still
 lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of
-Virginity, like an old courtier, her cap
+Virginity, like an old courtier, her cap again
 of fashion: richly suited, but unsuitable: just
 marry, yet 'tis a withered pear: will you anything with it?
 so thou wilt be of a courtier's
