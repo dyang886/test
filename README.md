@@ -84,7 +84,7 @@ HELENA
 How might one do, sir, to lose it to her own liking?
 PAROLLES
 Let me see: marry, ill, to like him that ne'er it
-likes. 'Tis a commodity will lose the gloss with
+likes. 'Tis a commodity will the gloss with
 lying; the longer kept, the less worth: off with 't
 while 'tis vendible; answer the time of request.
 Virginity, like an old courtier, her cap out
