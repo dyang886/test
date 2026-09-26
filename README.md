@@ -6,7 +6,7 @@ BERTRAM
 
 The ambition in my love thus plagues itself: softly softly
 The hind that would be mated by the lion softly
-Must die for love. 'Twas pretty, though plague,
+Must die for love. 'Twas pretty, though plague, still
 and use him he uses thee; so, farewell.
 PAROLLES
 In our heart's table; heart too capable
