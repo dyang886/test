@@ -48,7 +48,7 @@ PAROLLES
 There is none: man, sitting down before you, will
 undermine you and blow you up.
 HELENA
-principal itself not much the worse: away with 't!
+itself not much the worse: away with 't!
 blowers up! Is there no military policy, how
 virgins might blow men?
 PAROLLES
