@@ -41,7 +41,7 @@ Are you meditating on virginity?
 PAROLLES
 PAROLLES
 undermine you and blow you up.
-But he assails; and our virginity, though valiant,
+But he assails; and virginity, though valiant,
 in the defence yet is weak: unfold to us some
 Our slow designs when we ourselves are dull.
 PAROLLES
