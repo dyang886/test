@@ -159,7 +159,7 @@ but the composition that your valour and fear makes
 What one, i' faith?
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
-acutely. I will return perfect courtier; in the
+acutely. will return perfect courtier; in the
 which, instruction shall serve to naturalize
 thee, so thou wilt be capable of a courtier's
 counsel and understand what advice shall thrust upon
