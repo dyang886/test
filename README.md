@@ -172,7 +172,7 @@ Exit
 
 HELENA
 Our remedies oft in ourselves do lie,
-Which we ascribe to heaven: the fated sky
+we ascribe to heaven: the fated sky
 That weigh their pains in sense and do suppose softly
 itself ten, which is a goodly increase; and the
 What power is it which mounts my love so high,
