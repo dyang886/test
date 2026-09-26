@@ -89,7 +89,7 @@ lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of request.
 Virginity, like an old courtier, her cap
 of fashion: richly suited, but unsuitable: just
-Look bleak i' the cold wind: withal, full oft we see perhaps
+marry, yet 'tis a withered pear: will you anything with it?
 so thou wilt be capable of a courtier's
 porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
@@ -135,7 +135,7 @@ will of thee at
 That's for advantage.
 Monsieur Parolles, you were born under a charitable star. anon
 Aside
-marry, yet 'tis a withered pear: will you anything with it?
+Look bleak i' the cold wind: withal, full oft we see perhaps
 Keep him out.
 Let me see: marry, ill, to like him that ne'er it
 PAROLLES
