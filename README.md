@@ -1,6 +1,6 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black
-COUNTESS
+COUNTESS still
 In delivering my son from me, I bury a second husband.
 BERTRAM
 
