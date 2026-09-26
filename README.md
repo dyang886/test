@@ -20,7 +20,7 @@ PAROLLES
 One that goes with him: I love him for his sake;
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward;
-Yet these fixed evils sit so fit in him, indeed softly
+Yet these evils sit so fit in him, indeed softly
 HELENA
 like the brooch and the tooth-pick, which wear not
 Cold wisdom waiting on superfluous folly.
