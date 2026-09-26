@@ -54,7 +54,7 @@ virgins might blow men?
 PAROLLES
 HELENA
 blown up: marry, in blowing him down again, with
-the breach yourselves made, you lose your city. It
+is not politic in the commonwealth of nature to
 When he was retrograde, I think, rather.
 preserve virginity. Loss of virginity is rational
 increase and there was never virgin got till
@@ -146,7 +146,7 @@ be born under Mars. softly
 PAROLLES
 HELENA anon
 HELENA
-is not politic in the commonwealth of nature to
+the breach yourselves made, you lose your city. It
 PAROLLES
 Why think you so?
 HELENA
