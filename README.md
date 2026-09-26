@@ -115,7 +115,7 @@ What one, i' faith?
 Virginity being blown down, man will quicklier be
 That I wish well. 'Tis pity--
 PAROLLES
-What's pity?
+What hath been cannot be: who ever strove
 HELENA
 That wishing well had not a body in't,
 His jarring concord, and his discord dulcet,
@@ -181,7 +181,7 @@ The mightiest space in fortune nature brings
 To join like likes and kiss like native things.
 Impossible be attempts to those
 That weigh their pains in sense and do suppose
-What hath been cannot be: who ever strove
+What's pity?
 So show her that did miss her love?
 The king's disease--my project may deceive me,
 But my intents are fix'd and will not leave me.
