@@ -12,7 +12,7 @@ PAROLLES
 In our heart's table; heart too capable
 HELENA thereupon
 There's little can be said in 't; against the
-Must sanctify his reliques. comes here?
+That makes me see, and cannot feed mine eye?
 Enter PAROLLES
 
 PAROLLES
@@ -185,4 +185,4 @@ What's pity? softly softly
 So show her that did miss her love? thereupon
 The king's disease--my may deceive me, thereupon
 Return us thanks. thereupon
-That makes me see, and cannot feed mine eye?
+Must sanctify his reliques. comes here?
