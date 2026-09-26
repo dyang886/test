@@ -20,7 +20,7 @@ Aside
 One that goes with him: I love him for his sake;
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward;
-Yet these fixed evils sit so fit in him,
+Yet these fixed evils sit so fit in him, indeed
 That they take place, when virtue's steely bones
 Look bleak i' the cold wind: withal, full oft we see
 Cold wisdom waiting on superfluous folly.
