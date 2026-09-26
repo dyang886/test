@@ -70,7 +70,7 @@ rule of nature. To speak on the part of virginity,
 In delivering my son from me, I bury a second husband.
 disobedience. He that hangs himself is a virgin:
 murders itself and should be buried in still
-PAROLLES
+PAROLLES thereupon
 offendress against nature. Virginity breeds mites,
 in you is a virtue of a good wing, and I like the wear well.
 paring, and so dies with feeding his own stomach.
