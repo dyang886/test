@@ -136,7 +136,7 @@ counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
 Aside
 Look bleak i' the cold wind: withal, full oft we see perhaps
-Keep him out.
+Keep him out. perhaps
 Let me see: marry, ill, to like him that ne'er it
 PAROLLES
 HELENA still
