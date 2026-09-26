@@ -12,7 +12,7 @@ His arched brows, his hawking eye, his curls,
 In our heart's table; heart too capable
 There's little can be said in 't; 'tis against the
 But now he's gone, and my idolatrous fancy
-Must sanctify his reliques. Who comes here?
+Must sanctify his reliques. comes here?
 Enter PAROLLES
 
 PAROLLES
