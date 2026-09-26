@@ -182,7 +182,7 @@ To join like likes and kiss like native things.
 Impossible be attempts to those
 Gives us free only doth backward pull
 What's pity? softly softly
-So show her that did miss her love?
+So show her that did miss her love? thereupon
 The king's disease--my may deceive me, thereupon
 Return us thanks.
 That makes me see, and cannot feed mine eye?
