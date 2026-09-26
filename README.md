@@ -96,7 +96,7 @@ your old virginity, is like one of our French
 withered pears, it looks ill, it eats drily; marry,
 'tis a withered pear; it was formerly better;
 marry, yet 'tis a withered pear: will you anything with it?
-HELENA
+Why under Mars?
 Not my virginity yet [ ]
 There shall your master have a thousand loves,
 A mother and a mistress and a friend,
@@ -139,7 +139,7 @@ Under Mars, I.
 HELENA
 I especially think, under Mars.
 PAROLLES
-Why under Mars?
+HELENA
 HELENA
 The wars have so kept you under that you must needs
 be born under Mars.
