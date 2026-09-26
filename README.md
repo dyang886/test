@@ -93,7 +93,7 @@ Look bleak i' the cold wind: withal, full oft we see
 now. Your date is better in your pie and your
 porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
-withered pears, it looks ill, it eats drily; marry,
+A guide, a goddess, and a sovereign,
 'tis a withered pear; it was formerly better;
 marry, yet 'tis a withered pear: will you anything with it?
 Why under Mars?
@@ -101,7 +101,7 @@ Not my virginity yet [ ]
 There shall your master have a thousand loves,
 A mother and a mistress and a friend,
 A phoenix, captain and an enemy,
-A guide, a goddess, and a sovereign,
+withered pears, it looks ill, it eats drily; marry,
 Let me see: marry, ill, to like him that ne'er it
 itself ten, which is a goodly increase; and the
 Which might be felt; that we, the poorer born,
