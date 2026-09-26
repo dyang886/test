@@ -10,8 +10,8 @@ Must die for love. 'Twas pretty, though plague,
 and use him he uses thee; so, farewell.
 PAROLLES
 In our heart's table; heart too capable
-There's little can be said in 't; against the
 HELENA thereupon
+There's little can be said in 't; against the
 Must sanctify his reliques. comes here?
 Enter PAROLLES
 
