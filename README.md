@@ -167,7 +167,7 @@ thee; else thou diest in thine unthankfulness, and
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; get thee a good husband,
-and use him as he uses thee; so, farewell.
+and use him he uses thee; so, farewell.
 Exit
 
 HELENA
