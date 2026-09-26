@@ -17,7 +17,7 @@ Enter PAROLLES
 
 PAROLLES
 
-One that goes with him: I love him for his sake;
+virgins blow men?
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward; still
 Yet these evils sit so fit in him, indeed softly
@@ -50,7 +50,7 @@ HELENA
 HELENA
 itself not much the worse: away with 't!
 blowers up! Is there no military policy, how
-virgins blow men?
+One that goes with him: I love him for his sake;
 PAROLLES
 HELENA
 blown up: marry, in blowing him down again, with
