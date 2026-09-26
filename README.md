@@ -132,7 +132,7 @@ Exit
 PAROLLES
 Little Helen, farewell; if I can remember thee, I
 will of thee at court.
-HELENA
+That's for advantage.
 Monsieur Parolles, you were born under a charitable star.
 Aside
 Under Mars, I.
@@ -152,7 +152,7 @@ Why think you so?
 HELENA
 You go so much backward when you fight. softly
 PAROLLES
-That's for advantage.
+HELENA
 HELENA
 So is running away, when fear proposes the safety;
 but the composition that your valour and fear makes
