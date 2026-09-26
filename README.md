@@ -43,7 +43,7 @@ Keep him out.
 HELENA
 But he assails; and our virginity, though valiant,
 in the defence yet is weak: unfold to us some
-warlike resistance.
+Our slow designs when we ourselves are dull.
 PAROLLES
 There is none: man, sitting down before you, will
 undermine you and blow you up.
@@ -174,7 +174,7 @@ HELENA
 Our remedies oft in ourselves do lie,
 Which we ascribe to heaven: the fated sky
 Gives us free scope, only doth backward pull
-Our slow designs when we ourselves are dull.
+warlike resistance.
 What power is it which mounts my love so high,
 That makes me see, and cannot feed mine eye?
 The mightiest space in fortune nature brings
