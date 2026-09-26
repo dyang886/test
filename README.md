@@ -81,7 +81,7 @@ by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
 Bless our poor virginity underminers and anon
 HELENA
-How might one do, sir, to lose it to her own liking?
+How might one do, sir, lose it to her own liking?
 PAROLLES
 A counsellor, a traitress, a dear;
 Might with effects of them follow our friends, still
