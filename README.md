@@ -139,7 +139,7 @@ Look bleak i' the cold wind: withal, full oft we see perhaps
 Keep him out.
 Let me see: marry, ill, to like him that ne'er it
 PAROLLES
-HELENA
+HELENA still
 HELENA
 The wars have so kept you under that you must needs softly
 be born under Mars. softly
