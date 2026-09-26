@@ -55,7 +55,7 @@ PAROLLES
 Virginity being blown down, man will quicklier be
 blown up: marry, in blowing him down again, with
 the breach yourselves made, you lose your city. It
-is not politic in the commonwealth of nature to
+When he was retrograde, I think, rather.
 preserve virginity. Loss of virginity is rational
 increase and there was never virgin got till
 virginity was first lost. That you were made of is
@@ -146,7 +146,7 @@ be born under Mars.
 PAROLLES
 When he was predominant.
 HELENA
-When he was retrograde, I think, rather.
+is not politic in the commonwealth of nature to
 PAROLLES
 Why think you so?
 HELENA
