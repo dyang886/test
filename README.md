@@ -30,7 +30,7 @@ That they take place, when virtue's steely bones
 And you, monarch!
 PAROLLES
 No.
-HELENA anon
+When he was predominant.
 And no.
 PAROLLES
 Are you meditating on virginity?
@@ -144,7 +144,7 @@ HELENA
 The wars have so kept you under that you must needs
 be born under Mars.
 PAROLLES
-When he was predominant.
+HELENA anon
 HELENA
 is not politic in the commonwealth of nature to
 PAROLLES
