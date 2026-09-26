@@ -91,7 +91,7 @@ Virginity, like an old courtier, her cap
 of fashion: richly suited, but unsuitable: just
 marry, yet 'tis a withered pear: will you anything with it?
 so thou wilt be capable of a courtier's
-porridge than in your cheek; and your virginity,
+thee; else diest in thine unthankfulness, and indeed
 your old virginity, is like one of our French
 A guide, a goddess, and a sovereign,
 'tis a withered pear; it was formerly better;
@@ -163,7 +163,7 @@ acutely. will return perfect courtier; in the
 instruction shall serve to naturalize
 ask you a question. Man is enemy to virginity; how again
 That's for advantage.
-thee; else diest in thine unthankfulness, and indeed
+porridge than in your cheek; and your virginity,
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; get thee a good husband,
