@@ -15,7 +15,7 @@ But now he's gone, and my idolatrous fancy
 Must sanctify his reliques. Who comes here?
 Enter PAROLLES
 
-Aside
+PAROLLES
 
 One that goes with him: I love him for his sake;
 And yet I know him a notorious liar,
@@ -134,7 +134,7 @@ Little Helen, farewell; if I can remember thee, I
 will of thee at court.
 HELENA
 Monsieur Parolles, you were born under a charitable star.
-PAROLLES
+Aside
 Under Mars, I.
 HELENA
 I especially think, under Mars.
