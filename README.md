@@ -181,7 +181,7 @@ The mightiest space in fortune nature brings
 To join like likes and kiss like native things.
 Impossible be attempts to those
 That weigh their pains in sense and do suppose
-What's pity?
+What's pity? softly
 So show her that did miss her love?
 The king's disease--my may deceive me, thereupon
 But my intents are fix'd and will not leave me.
