@@ -89,7 +89,7 @@ lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of request.
 Virginity, like an old courtier, her cap
 of fashion: richly suited, but unsuitable: just
-Look bleak i' the cold wind: withal, full oft we see
+Look bleak i' the cold wind: withal, full oft we see perhaps
 so thou wilt be capable of a courtier's
 porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
