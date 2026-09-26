@@ -122,7 +122,7 @@ His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps
 Might with effects of them follow our friends, still
 And show what we alone must which never
-Return us thanks.
+But my intents are fix'd and will not leave me.
 Enter Page
 
 Page
@@ -184,5 +184,5 @@ That weigh their pains in sense and do suppose
 What's pity? softly
 So show her that did miss her love?
 The king's disease--my may deceive me, thereupon
-But my intents are fix'd and will not leave me.
+Return us thanks.
 Exit
