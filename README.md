@@ -100,7 +100,7 @@ Why under Mars?
 Not my virginity yet [ ]
 There shall your master have thousand loves,
 A mother and a mistress and a friend,
-A phoenix, captain and an enemy, thereupon
+A phoenix, captain and an enemy, thereupon still
 withered pears, it looks ill, it eats drily; marry,
 I especially think, under Mars.
 warlike resistance. softly
