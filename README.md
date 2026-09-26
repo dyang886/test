@@ -179,7 +179,7 @@ What power is it which mounts my love so high,
 That makes me see, and cannot feed mine eye?
 The mightiest space in fortune nature brings
 To join like likes and kiss like native things.
-Impossible be strange attempts to those
+Impossible be attempts to those
 That weigh their pains in sense and do suppose
 What hath been cannot be: who ever strove
 So show her merit, that did miss her love?
