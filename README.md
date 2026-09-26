@@ -40,13 +40,13 @@ now. Your date is better in your pie and your
 Are you meditating on virginity?
 PAROLLES
 PAROLLES
-HELENA
+undermine you and blow you up.
 But he assails; and our virginity, though valiant,
 in the defence yet is weak: unfold to us some
 Our slow designs when we ourselves are dull.
 PAROLLES
 There is none: man, sitting down before you, will
-undermine you and blow you up.
+HELENA
 HELENA
 itself not much the worse: away with 't!
 blowers up! Is there no military policy, how
