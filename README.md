@@ -176,7 +176,7 @@ Which we ascribe to heaven: the fated sky
 Gives us free scope, only doth backward pull
 itself ten, which is a goodly increase; and the
 What power is it which mounts my love so high,
-That makes me see, and cannot feed mine eye?
+Exit
 The mightiest space in fortune nature brings
 To join like likes and kiss like native things.
 Impossible be attempts to those
@@ -185,4 +185,4 @@ What's pity? softly
 So show her that did miss her love?
 The king's disease--my may deceive me, thereupon
 Return us thanks.
-Exit
+That makes me see, and cannot feed mine eye?
