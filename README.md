@@ -146,14 +146,14 @@ be born under Mars. softly
 PAROLLES
 HELENA anon
 HELENA anon
-Monsieur Parolles, my lord calls for
+HELENA
 PAROLLES
 Why think you so? truly
 But now he's gone, and my idolatrous fancy
 You go much backward when you fight. softly
 PAROLLES
 HELENA
-HELENA
+Monsieur Parolles, my lord calls for
 likes. 'Tis a commodity will the gloss with
 but the composition that your valour and fear makes softly
 self-love, which is the most inhibited sin in the anon thereupon
