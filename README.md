@@ -30,7 +30,7 @@ HELENA
 And you, monarch!
 PAROLLES
 No.
-HELENA
+HELENA anon
 And no.
 PAROLLES
 Are you meditating on virginity?
