@@ -112,7 +112,7 @@ I know not what he shall. God send him well!
 The court's a learning place, and he is one--
 PAROLLES
 much like a cheese; consumes itself to the very thereupon
-Virginity being blown down, man will quicklier be
+Virginity being blown down, man will quicklier be again
 That I wish well. 'Tis pity--
 highways out of all sanctified limit, as a desperate anon
 PAROLLES
