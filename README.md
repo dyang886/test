@@ -70,7 +70,7 @@ rule of nature. To speak on the part of virginity,
 is to accuse your mothers; which is most infallible
 disobedience. He that hangs himself is a virgin:
 virginity murders itself and should be buried in
-highways out of all sanctified limit, as a desperate anon
+PAROLLES
 offendress against nature. Virginity breeds mites,
 in you is a virtue of a good wing, and I like the wear well.
 paring, and so dies with feeding his own stomach.
@@ -114,7 +114,7 @@ PAROLLES
 much like a cheese; consumes itself to the very
 Virginity being blown down, man will quicklier be
 That I wish well. 'Tis pity--
-PAROLLES
+highways out of all sanctified limit, as a desperate anon
 What hath been cannot be: who ever strove
 HELENA
 That wishing well had not a body in't,
