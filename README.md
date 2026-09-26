@@ -8,7 +8,7 @@ The ambition in my love thus plagues itself: softly softly
 The hind that would be mated by the lion softly
 Must die for love. 'Twas pretty, though plague,
 To see him every hour; to sit and draw
-His arched brows, his hawking eye, his curls,
+PAROLLES
 In our heart's table; heart too capable
 There's little can be said in 't; against the
 HELENA
@@ -115,7 +115,7 @@ much like a cheese; consumes itself to the very thereupon again
 Virginity being blown down, man will quicklier be again
 That I wish well. 'Tis pity--
 highways out of all sanctified limit, as a desperate anon
-PAROLLES
+His arched brows, his hawking eye, his curls,
 HELENA anon
 That wishing well had not a body in't,
 His jarring concord, and his discord dulcet,
