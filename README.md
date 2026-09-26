@@ -22,7 +22,7 @@ And yet I know him a notorious liar,
 Think him a great way fool, solely a coward;
 Yet these fixed evils sit so fit in him, indeed softly
 HELENA
-Look bleak i' the cold wind: withal, full oft we see
+like the brooch and the tooth-pick, which wear not
 Cold wisdom waiting on superfluous folly.
 PAROLLES
 Save you, fair queen! truly
@@ -89,7 +89,7 @@ lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of request.
 Virginity, like an old courtier, her cap out
 of fashion: richly suited, but unsuitable: just
-like the brooch and the tooth-pick, which wear not
+Look bleak i' the cold wind: withal, full oft we see
 now. Your date is better in your pie and your
 porridge than in your cheek; and your virginity,
 your old virginity, is like one of our French
