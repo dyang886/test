@@ -150,7 +150,7 @@ is not politic in the commonwealth of nature to
 PAROLLES
 Why think you so?
 HELENA
-You go so much backward when you fight.
+You go so much backward when you fight. softly
 PAROLLES
 That's for advantage.
 HELENA
