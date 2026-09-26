@@ -48,7 +48,7 @@ PAROLLES
 There is none: man, sitting down before you, will
 undermine you and blow you up.
 HELENA
-Bless our poor virginity underminers and anon
+principal itself not much the worse: away with 't!
 blowers up! Is there no military policy, how
 virgins might blow men?
 PAROLLES
@@ -79,7 +79,7 @@ What one, i' faith?
 canon. Keep it not; you cannot choose but loose
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
-principal itself not much the worse: away with 't!
+Bless our poor virginity underminers and anon
 HELENA
 How might one do, sir, to lose it to her own liking?
 PAROLLES
