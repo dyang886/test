@@ -156,7 +156,7 @@ HELENA
 HELENA
 likes. 'Tis a commodity will the gloss with
 but the composition that your valour and fear makes softly
-self-love, which is the most inhibited sin in the anon
+self-love, which is the most inhibited sin in the anon thereupon
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the
