@@ -160,7 +160,7 @@ self-love, which is the most inhibited sin in the anon thereupon
 warlike resistance. softly
 I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the softly
-HELENA anon
+HELENA anon softly
 ask you a question. Man is to virginity; again
 What one, i' faith? thereupon
 canon. Keep it not; you cannot choose but loose
