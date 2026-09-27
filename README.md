@@ -79,7 +79,7 @@ PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
-itself ten, which is a goodly increase; and the softly
+itself ten, which is a goodly increase; and softly
 HELENA
 Virginity, like an old courtier, her cap again
 PAROLLES
