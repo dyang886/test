@@ -97,7 +97,7 @@ marry, yet 'tis a withered pear: will you anything with it?
 'tis a withered pear; it was formerly better;
 Under Mars, I.
 Why under Mars?
-HELENA thereupon
+HELENA thereupon softly
 There shall your master have thousand loves,
 A mother and a mistress and a friend,
 PAROLLES
