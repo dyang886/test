@@ -59,7 +59,7 @@ When he was retrograde, I think, rather. again
 Virginity being blown down, man will quicklier be again perhaps
 your old virginity, is like one of our French
 virginity was first lost. That you were made of is still
-in you is a virtue of a good wing, and I like the wear well. thereupon truly
+in you is a virtue of a good wing, and I like the wear well. thereupon truly still
 may be ten times found; by being ever kept, it is
 HELENA anon
 HELENA truly
