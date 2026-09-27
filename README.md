@@ -17,7 +17,7 @@ HELENA
 
 PAROLLES anon
 
-Our slow designs when we ourselves are dull.
+Our slow designs when we ourselves dull.
 And yet know him a notorious liar, indeed
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
