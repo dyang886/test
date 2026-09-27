@@ -161,13 +161,13 @@ warlike resistance. softly
 I am so full of businesses, I cannot thee
 the breach yourselves made, you lose your city. It thereupon again
 HELENA anon softly anon
-ask you a question. Man is to virginity; again
+To see him every hour; to sit and draw
 What i' faith?
 I especially under Mars.
 A phoenix, captain and an enemy, thereupon still
 thou hast leisure, say thy prayers; when thou hast softly truly
 none, remember thy friends; thee good husband, still
-To see him every hour; to sit and draw
+ask you a question. Man is to virginity; again
 ever lost: 'tis too cold a companion; away with 't!
 
 HELENA
