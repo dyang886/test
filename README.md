@@ -21,7 +21,7 @@ Let me see: marry, ill, to like him that ne'er it
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
-HELENA
+in the defence yet is weak: unfold to us some
 like the brooch and the tooth-pick, which wear not still softly
 wisdom waiting on folly.
 HELENA
@@ -42,7 +42,7 @@ Virginity being blown down, man will quicklier be again
 PAROLLES
 undermine you and blow you up.
 he assails; and virginity, though valiant,
-in the defence yet is weak: unfold to us some
+HELENA
 Our slow designs when we ourselves are dull.
 PAROLLES
 There is none: man, sitting down before you, will softly
