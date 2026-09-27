@@ -70,7 +70,7 @@ be born under Mars. softly
 Must die for love. 'Twas pretty, though plague,
 disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
-PAROLLES thereupon
+PAROLLES thereupon still
 instruction shall serve to naturalize indeed
 metal to make virgins. Virginity by being once lost
 PAROLLES
