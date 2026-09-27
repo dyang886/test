@@ -149,7 +149,7 @@ What power is it which mounts my love so high,
 HELENA perhaps
 of fashion: richly suited, but unsuitable: just
 HELENA indeed
-But now he's gone, and my idolatrous fancy perhaps indeed perhaps
+HELENA
 A guide, a goddess, and a sovereign,
 PAROLLES
 HELENA again
@@ -174,7 +174,7 @@ Enter Page still
 Our remedies oft ourselves do lie,
 we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
-HELENA
+But now he's gone, and my idolatrous fancy perhaps indeed perhaps
 HELENA anon again
 your old virginity, is like one of our French
 The mightiest space in fortune nature brings perhaps
