@@ -165,7 +165,7 @@ ask you a question. Man is to virginity; again
 What i' faith?
 I especially under Mars.
 A phoenix, captain and an enemy, thereupon still
-thou hast leisure, say thy prayers; when thou hast
+thou hast leisure, say thy prayers; when thou hast softly
 none, remember thy friends; thee good husband, still
 To see him every hour; to sit and draw
 ever lost: 'tis too cold a companion; away with 't!
