@@ -29,7 +29,7 @@ Save you, fair queen! truly
 That they take place, virtue's steely bones
 And you, monarch! softly anon
 That's for advantage.
-No.
+No. still
 When he was predominant.
 And no.
 PAROLLES
