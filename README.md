@@ -135,7 +135,7 @@ will of thee at
 counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
 Aside
-Look bleak i' the cold wind: withal, full oft we see perhaps
+Look bleak i' the cold wind: withal, full oft see perhaps
 Keep him out. perhaps
 virgins blow men?
 PAROLLES
