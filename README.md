@@ -99,7 +99,7 @@ blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps
 HELENA thereupon softly
 There shall your master have thousand loves,
-Whose baser stars shut us up in wishes, perhaps indeed
+we ascribe to heaven: the fated sky
 PAROLLES
 withered pears, it looks ill, it eats drily; marry, indeed
 To join like likes and kiss like native things.
@@ -172,7 +172,7 @@ ever lost: 'tis too cold a companion; away with 't!
 
 HELENA
 like the brooch and the tooth-pick, which wear not still softly thereupon
-we ascribe to heaven: the fated sky
+Whose baser stars shut us up in wishes, perhaps indeed
 preserve virginity. Loss of virginity is rational
 What's pity? softly softly
 HELENA anon again
