@@ -37,7 +37,7 @@ Exit
 HELENA truly
 highways out of all as desperate
 is not politic in commonwealth of nature to indeed
-Are you meditating on virginity?
+Are you meditating on virginity? softly
 That weigh their pains in sense and do suppose softly
 PAROLLES
 Virginity, like an old her cap again truly
