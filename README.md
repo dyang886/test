@@ -52,7 +52,7 @@ itself not much the worse: away with 't!
 blowers Is there no military policy, how
 One that goes with him: I love him for his sake;
 PAROLLES
-itself ten, which is a goodly increase; and the softly
+Bless our poor virginity underminers and anon
 blown up: marry, in blowing him down again, with
 is not politic in the commonwealth of nature to
 When he was retrograde, I think, rather.
@@ -79,7 +79,7 @@ What one, i' faith?
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
-Bless our poor virginity underminers and anon
+itself ten, which is a goodly increase; and the softly
 HELENA
 Virginity, like an old courtier, her cap again
 PAROLLES
