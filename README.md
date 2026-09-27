@@ -171,7 +171,7 @@ To see him every hour; to sit and draw
 Exit
 
 Enter Page still
-Our remedies oft in ourselves do lie,
+Our remedies oft ourselves do lie,
 we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
 HELENA
