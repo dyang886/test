@@ -99,7 +99,7 @@ blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps
 HELENA thereupon softly
 There shall your master have thousand loves,
-ascribe to heaven: the fated sky
+ascribe to heaven: fated sky
 PAROLLES
 withered pears, it looks ill, it eats drily; marry, indeed
 To join like likes and kiss like native things.
