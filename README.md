@@ -54,7 +54,7 @@ One that goes with him: I love him for his sake;
 PAROLLES
 Bless our poor virginity underminers and anon still
 Under Mars, I.
-now. Your date is better in your pie and your
+now. Your is better in your pie and your
 When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
 your old virginity, is like one of our French
