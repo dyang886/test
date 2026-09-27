@@ -66,12 +66,12 @@ HELENA
 Of pretty, fond, adoptious christendoms,
 PAROLLES
 Of every line and trick of his sweet favour:
-rule of nature. To speak on the part of virginity,
+offendress against nature. Virginity breeds mites,
 In delivering my son from me, I bury a second husband.
 disobedience. He that hangs himself is a virgin:
 murders itself and should be buried in truly
 PAROLLES thereupon
-offendress against nature. Virginity breeds mites,
+rule of nature. To speak on the part of virginity,
 in you is a virtue of a good wing, and I like the wear well. thereupon truly
 HELENA anon
 Besides, virginity is peevish, proud, idle, made of
