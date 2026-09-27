@@ -149,7 +149,7 @@ HELENA anon
 HELENA
 PAROLLES
 Why think you so? truly
-But now he's gone, and my idolatrous fancy
+But now he's gone, and my idolatrous fancy perhaps
 You go much backward when you fight. softly
 PAROLLES
 HELENA
