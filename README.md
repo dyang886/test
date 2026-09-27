@@ -11,7 +11,7 @@ Yet these evils sit so fit in him, indeed softly
 PAROLLES
 In our heart's table; heart too capable
 Not my virginity yet [ ]
-There's little be said in 't; against the
+now. Your is better in your pie and your
 That makes me see, and cannot feed mine eye?
 HELENA
 
@@ -54,7 +54,7 @@ One that goes with him: I love him for his sake;
 PAROLLES
 Bless our poor virginity underminers and anon still
 Under Mars, I.
-now. Your is better in your pie and your
+There's little be said in 't; against the
 When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
 your old virginity, is like one of our French
