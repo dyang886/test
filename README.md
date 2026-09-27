@@ -32,7 +32,7 @@ That's for advantage.
 No. still
 When he was predominant.
 And no.
-may we barricado it against him? thereupon
+may we barricado it against thereupon
 Exit
 HELENA truly
 Ay. You have some stain of soldier in you: let me
