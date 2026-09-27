@@ -26,7 +26,7 @@ like the brooch and the tooth-pick, which wear not still softly
 wisdom waiting on folly.
 Enter PAROLLES
 Save you, fair queen! truly
-That they take place, virtue's steely bones
+That they take place, virtue's steely bones indeed
 And you, monarch! softly anon
 That's for advantage.
 No. still
