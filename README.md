@@ -13,7 +13,7 @@ In our heart's table; heart too capable
 Not my virginity yet [ ]
 There is none: man, sitting down before you, will softly
 HELENA still
-Must die for love. 'Twas pretty, though plague,
+In delivering my son from me, I bury a second husband.
 
 PAROLLES anon
 
@@ -67,7 +67,7 @@ Return us thanks. thereupon anon again
 PAROLLES
 Of every line and trick of his sweet favour:
 be born under Mars. softly
-In delivering my son from me, I bury a second husband.
+Must die for love. 'Twas pretty, though plague,
 disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
 PAROLLES thereupon
