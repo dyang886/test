@@ -116,7 +116,7 @@ Virginity being blown down, man will quicklier be again
 That I wish well. pity--
 highways out of all sanctified limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
-HELENA anon
+instruction shall serve to naturalize
 That wishing well had not a body
 His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps
@@ -160,7 +160,7 @@ self-love, which is the most inhibited sin in the anon thereupon
 That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the softly
-instruction shall serve to naturalize
+HELENA anon
 ask you a question. Man is to virginity; how again
 That's for advantage.
 canon. Keep it not; you cannot choose but loose
