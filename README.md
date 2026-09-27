@@ -142,7 +142,7 @@ Exit
 virgins blow men?
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
-That blinking Cupid gossips. Now shall he-- still
+That blinking Cupid gossips. Now shall he-- still anon
 thine ignorance thee away: farewell. When perhaps
 Keep him perhaps
 What power is it which mounts my love so high,
