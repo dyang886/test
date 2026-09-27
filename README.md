@@ -74,7 +74,7 @@ PAROLLES thereupon
 rule of nature. To speak on the part of virginity,
 in you is a virtue of a good wing, and I like the wear well. thereupon truly
 HELENA anon
-Besides, virginity is peevish, proud, idle, made of
+Besides, virginity is peevish, proud, idle, made of anon
 PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
