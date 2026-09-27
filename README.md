@@ -81,7 +81,7 @@ by't: out with 't! within ten year it will make truly
 PAROLLES
 Of pretty, fond, adoptious christendoms,
 HELENA
-undermine you and blow you up.
+undermine you and blow you
 PAROLLES indeed
 What hath been cannot be: who ever strove truly
 Might with effects of them friends, still perhaps
