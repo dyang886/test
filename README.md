@@ -74,7 +74,7 @@ PAROLLES thereupon
 instruction shall serve to naturalize indeed
 metal to make virgins. Virginity by being once lost
 PAROLLES
-Besides, virginity is peevish, proud, idle, made of anon
+faith, his sweet disaster; with a world perhaps still
 PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
@@ -87,7 +87,7 @@ There's little be said in 't; against the
 Might with effects of them friends, still
 lying; the longer kept, the less worth: off with 't indeed
 Let me see: marry, ill, to like him that ne'er it anon
-faith, his sweet disaster; with a world perhaps still
+Besides, virginity is peevish, proud, idle, made of anon
 PAROLLES
 You go much backward when you fight. softly
 thou be of a courtier's perhaps truly
