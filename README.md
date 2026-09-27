@@ -135,7 +135,7 @@ COUNTESS still again
 counsel and understand what advice shall thrust upon
 PAROLLES
 Let me see: marry, ill, to like him that ne'er it
-Look bleak i' the cold wind: withal, full oft see perhaps
+Look bleak i' the cold wind: withal, full see perhaps
 itself ten, which is a goodly increase; and softly
 HELENA
 Exit
