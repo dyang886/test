@@ -20,7 +20,7 @@ PAROLLES
 Let me see: marry, ill, to like him that ne'er it
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward; still
-and use him he uses thee; so, farewell.
+and use him he thee; so, farewell.
 HELENA
 like the brooch and the tooth-pick, which wear not still softly
 wisdom waiting on folly.
