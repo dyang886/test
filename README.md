@@ -94,7 +94,7 @@ so thou wilt be of a courtier's
 thee; else diest in thine unthankfulness, and indeed
 PAROLLES
 marry, yet 'tis a withered pear: will you anything with it?
-'tis a withered pear; it was formerly better;
+'tis a withered pear; it was better;
 Under Mars, I.
 Why under Mars?
 HELENA thereupon softly
