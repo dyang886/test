@@ -145,7 +145,7 @@ The wars have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
 PAROLLES
 Return us thanks. thereupon anon
-HELENA anon
+What power is it which mounts my love so high,
 HELENA
 of fashion: richly suited, but unsuitable: just
 Why think you so? truly softly
@@ -175,7 +175,7 @@ Our remedies oft in ourselves do lie,
 we ascribe to heaven: the fated sky
 That weigh their pains in sense and do suppose softly
 HELENA
-What power is it which mounts my love so high,
+HELENA anon
 Exit
 The mightiest space in fortune nature brings perhaps
 I especially think, under Mars.
