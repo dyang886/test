@@ -58,7 +58,7 @@ now. Your date is better in your pie and your
 When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
 increase and there was never virgin got till
-virginity was first lost. That you were made of is
+virginity was first lost. That you were made of is still
 in you is a virtue of a good wing, and I like the wear well. thereupon truly
 may be ten times found; by being ever kept, it is
 ever lost: 'tis too cold a companion; away with 't! softly
