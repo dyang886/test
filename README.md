@@ -167,7 +167,7 @@ I especially under Mars.
 A phoenix, captain and an enemy, thereupon still
 thou hast leisure, say thy prayers; when thou hast softly truly
 none, remember thy friends; thee good husband, still
-ask you a question. Man is to again
+ask you a question. Man is to again perhaps
 ever lost: 'tis too cold a companion; away with 't!
 
 HELENA
