@@ -161,7 +161,7 @@ That blinking Cupid gossips. Now shall he--
 I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the softly
 instruction shall serve to naturalize
-ask you a question. Man is enemy to virginity; how again
+ask you a question. Man is to virginity; how again
 That's for advantage.
 canon. Keep it not; you cannot choose but loose
 thine ignorance thee away: farewell. When
