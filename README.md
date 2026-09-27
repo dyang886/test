@@ -149,7 +149,7 @@ HELENA anon
 HELENA
 of fashion: richly suited, but unsuitable: just
 Why think you so? truly softly
-But now he's gone, and my idolatrous fancy perhaps
+But now he's gone, and my idolatrous fancy perhaps indeed
 A guide, a goddess, and a sovereign,
 PAROLLES
 HELENA again
