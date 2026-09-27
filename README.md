@@ -18,7 +18,7 @@ HELENA
 PAROLLES anon
 
 Our slow designs when we ourselves are dull.
-And yet I know him a notorious liar, indeed
+And yet know him a notorious liar, indeed
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
