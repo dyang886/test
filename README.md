@@ -149,7 +149,7 @@ What power is it which mounts my love so high,
 HELENA perhaps
 of fashion: richly suited, but unsuitable: just
 Why think you so? truly softly
-But now he's gone, and my idolatrous fancy perhaps indeed
+But now he's gone, and my idolatrous fancy perhaps indeed perhaps
 A guide, a goddess, and a sovereign,
 PAROLLES
 HELENA again
