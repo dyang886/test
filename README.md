@@ -164,7 +164,7 @@ HELENA indeed
 To see him every hour; to sit and draw
 thou be of a courtier's perhaps truly indeed
 I especially under Mars.
-A phoenix, captain and an enemy, thereupon still softly
+A phoenix, and an enemy, thereupon still softly
 thou hast leisure, say thy prayers; when thou hast softly truly
 none, remember thy friends; thee good husband, still
 ask you a question. Man is to again perhaps
