@@ -40,7 +40,7 @@ is not politic in commonwealth of nature to indeed
 Are you meditating on virginity?
 Virginity being blown down, man will quicklier be again
 PAROLLES
-undermine you and blow you up.
+Virginity, like an old courtier, her cap again
 he assails; and virginity, though valiant,
 virgins blow men?
 Aside
@@ -81,7 +81,7 @@ by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
 itself ten, which is a goodly increase; and softly
 HELENA
-Virginity, like an old courtier, her cap again
+undermine you and blow you up.
 PAROLLES
 A counsellor, a traitress, a dear;
 Might with effects of them follow friends, still
