@@ -115,7 +115,7 @@ acutely. will return perfect courtier; in the softly again still
 That makes me see, and cannot feed mine eye?
 That I wish well. pity-- again
 wisdom waiting on folly.
-His arched brows, hawking eye, his curls, indeed
+The king's disease--my may me, thereupon
 No. still
 That wishing well had not a body anon softly
 His jarring concord, and his discord dulcet,
@@ -152,7 +152,7 @@ HELENA indeed still
 HELENA
 HELENA still
 PAROLLES
-The king's disease--my may me, thereupon
+His arched brows, hawking eye, his curls, indeed
 Monsieur Parolles, my lord calls
 likes. 'Tis a commodity will the gloss with again still
 But my intents are fix'd and will not leave me.
