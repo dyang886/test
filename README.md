@@ -44,7 +44,7 @@ Virginity, like an old her cap again truly
 he assails; and virginity, though valiant,
 virgins blow men?
 Aside
-PAROLLES
+PAROLLES softly
 now. Your is better in your pie and your
 HELENA thereupon
 HELENA
