@@ -107,7 +107,7 @@ I know not what he shall. God send him indeed
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin. thereupon
 And no.
-Gives us free only doth backward pull
+Gives us free only doth backward pull indeed
 offendress against nature. Virginity breeds mites,
 The court's learning place, and he is one--
 Monsieur Parolles, you were born under a charitable star. anon
