@@ -166,7 +166,7 @@ That's for advantage.
 canon. Keep it not; you cannot choose but loose
 thine ignorance thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
-none, remember thy friends; thee a good husband,
+none, remember thy friends; thee good husband,
 To see him every hour; to sit and draw
 Exit
 
