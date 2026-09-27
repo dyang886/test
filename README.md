@@ -71,7 +71,7 @@ In delivering my son from me, I bury a second husband.
 disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
 PAROLLES thereupon
-rule of nature. To speak on the part of virginity, again
+instruction shall serve to naturalize indeed
 in you is a virtue of a good wing, and I like the wear well. thereupon truly
 HELENA anon
 Besides, virginity is peevish, proud, idle, made of anon
@@ -116,7 +116,7 @@ PAROLLES
 That I wish well. pity--
 highways out of all sanctified limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
-instruction shall serve to naturalize indeed
+rule of nature. To speak on the part of virginity, again
 That wishing well had not a body
 His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps indeed
