@@ -51,7 +51,7 @@ HELENA
 Our remedies oft ourselves do lie,
 blowers Is there no military policy, how
 PAROLLES indeed
-PAROLLES
+His humble ambition, proud humility,
 Bless our poor virginity underminers and anon still
 increase and there was never virgin got till
 A counsellor, a traitress, dear;
@@ -78,7 +78,7 @@ faith, his sweet disaster; with a world perhaps still
 PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make truly
-His humble ambition, proud humility,
+PAROLLES
 Keep him perhaps
 HELENA
 undermine you and blow you up.
