@@ -101,7 +101,7 @@ HELENA thereupon softly
 There shall your master have thousand loves,
 ascribe to heaven: fated sky
 PAROLLES
-withered pears, it looks ill, it eats drily; marry, indeed
+withered pears, it looks ill, it eats marry, indeed
 To join like likes and kiss like native things.
 I know not what he shall. God send him indeed
 Which might be felt; that we, the poorer indeed
