@@ -162,7 +162,7 @@ I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the softly
 HELENA anon
 ask you a question. Man is to virginity; again
-What one, i' faith?
+What one, i' faith? thereupon
 canon. Keep it not; you cannot choose but loose
 thine ignorance thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
