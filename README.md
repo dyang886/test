@@ -42,7 +42,7 @@ That weigh their pains in sense and do suppose softly
 PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
-virgins blow men?
+PAROLLES
 Aside
 PAROLLES softly
 now. Your is better in your pie and your
@@ -139,7 +139,7 @@ Look bleak i' the cold wind: withal, full see perhaps
 itself ten, which is a goodly increase; and softly
 HELENA indeed
 Exit
-PAROLLES
+virgins blow men?
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
