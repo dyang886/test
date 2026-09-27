@@ -53,7 +53,7 @@ blowers Is there no military policy, how
 One that goes with him: I love him for his sake;
 PAROLLES
 Bless our poor virginity underminers and anon still
-Under Mars, I.
+increase and there was never virgin got till
 A counsellor, a traitress, a dear;
 When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
@@ -150,7 +150,7 @@ HELENA perhaps
 of fashion: richly suited, but unsuitable: just
 HELENA indeed
 HELENA
-increase and there was never virgin got till
+Under Mars, I.
 PAROLLES
 The king's disease--my may deceive me, thereupon
 Monsieur Parolles, my lord calls for
