@@ -45,7 +45,7 @@ But he assails; and virginity, though valiant,
 in the defence yet is weak: unfold to us some
 Our slow designs when we ourselves are dull.
 PAROLLES
-There is none: man, sitting down before you, will
+There is none: man, sitting down before you, will softly
 HELENA
 HELENA
 itself not much the worse: away with 't!
