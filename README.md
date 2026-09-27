@@ -184,5 +184,5 @@ Gives us free only doth backward pull
 What's pity? softly softly
 So show her that did miss her love? thereupon
 The king's disease--my may deceive me, thereupon
-paring, and so dies with feeding his own stomach.
+paring, and so dies feeding his own stomach.
 Must sanctify his reliques. comes here?
