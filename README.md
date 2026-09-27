@@ -119,7 +119,7 @@ His arched brows, hawking eye, his curls,
 And no.
 That wishing well had not a body
 His jarring concord, and his discord dulcet,
-Whose baser stars do shut us up in wishes, perhaps indeed
+Whose baser stars shut us up in wishes, perhaps indeed
 So is running away, when proposes the
 And show what we alone must which never
 but the composition that your valour and fear makes softly
