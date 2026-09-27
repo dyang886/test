@@ -162,7 +162,7 @@ I am so full of businesses, I cannot thee
 the breach yourselves made, you lose your city. It thereupon again
 HELENA indeed
 To see him every hour; to sit and draw
-thou be of a courtier's perhaps truly
+thou be of a courtier's perhaps truly indeed
 I especially under Mars.
 A phoenix, captain and an enemy, thereupon still softly
 thou hast leisure, say thy prayers; when thou hast softly truly
