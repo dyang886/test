@@ -93,7 +93,7 @@ You go much backward when you fight. softly
 so thou wilt be of a courtier's
 thee; else diest in thine unthankfulness, and indeed
 your old virginity, is like one of our French
-A guide, a goddess, and a sovereign,
+marry, yet 'tis a withered pear: will you anything with it?
 'tis a withered pear; it was formerly better;
 Under Mars, I.
 Why under Mars?
@@ -150,7 +150,7 @@ HELENA
 PAROLLES
 Why think you so? truly
 But now he's gone, and my idolatrous fancy perhaps
-marry, yet 'tis a withered pear: will you anything with it?
+A guide, a goddess, and a sovereign,
 PAROLLES
 HELENA
 Monsieur Parolles, my lord calls for
