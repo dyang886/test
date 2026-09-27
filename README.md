@@ -40,7 +40,7 @@ is not politic in commonwealth of nature to indeed
 Are you meditating on virginity?
 Virginity being blown down, man will quicklier be again perhaps
 PAROLLES
-Virginity, like an old courtier, her cap again
+Virginity, like an old courtier, her cap again truly
 he assails; and virginity, though valiant,
 virgins blow men?
 Aside
