@@ -9,7 +9,7 @@ The hind that would be mated by the lion softly truly
 Enter Page still
 Yet these evils sit so fit in him, indeed softly
 PAROLLES
-In our heart's table; heart too capable
+be born under Mars. softly
 Not my virginity yet [ ]
 There is none: man, sitting down before you, will softly
 Under Mars, I.
@@ -66,7 +66,7 @@ HELENA truly
 Return us thanks. thereupon anon again
 One that goes with him: I love him his sake;
 Of every line and trick of his sweet favour:
-be born under Mars. softly
+In our heart's table; heart too capable
 Must die for love. 'Twas pretty, though plague,
 disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
