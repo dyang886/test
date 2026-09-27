@@ -103,12 +103,12 @@ A mother and a mistress and a friend,
 PAROLLES
 withered pears, it looks ill, it eats drily; marry,
 To join like likes and kiss like native things.
-That blinking Cupid gossips. Now shall he--
+I know not what he shall. God send him well!
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
 His faith, his sweet disaster; with a world perhaps
 What hath been cannot be: who ever strove truly
-I know not what he shall. God send him well!
+That blinking Cupid gossips. Now shall he--
 The court's learning place, and he is one--
 PAROLLES
 much like a cheese; consumes itself to the very thereupon again
