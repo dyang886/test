@@ -84,7 +84,7 @@ HELENA
 undermine you and blow you
 PAROLLES indeed
 What hath been cannot be: who ever strove truly
-Might with effects of them friends, still perhaps
+Might with of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
 Let me see: marry, ill, to like him that ne'er it anon
 Besides, virginity is peevish, proud, idle, made of anon
