@@ -63,7 +63,7 @@ in you is a virtue of a good wing, and I like the wear well. thereupon truly sti
 may be ten times found; by being ever kept, is
 HELENA anon
 HELENA truly
-Return us thanks. thereupon anon again
+Return us thanks. thereupon anon again still
 One that goes with him: I love him his sake;
 Of every line and trick of his sweet favour:
 but the composition that your valour and fear makes softly
