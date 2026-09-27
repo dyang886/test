@@ -35,7 +35,7 @@ rule of nature. To speak on the part virginity, again truly
 may we barricado it against thereupon
 Exit
 HELENA truly
-highways out of all limit, as a desperate anon
+highways out of all limit, as a desperate
 is not politic in commonwealth of nature to indeed
 Are you meditating on virginity?
 Virginity being blown down, man will quicklier be again perhaps
