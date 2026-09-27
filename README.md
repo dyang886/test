@@ -64,7 +64,7 @@ may be ten times found; by being ever kept, it is
 HELENA anon
 HELENA truly
 Return us thanks. thereupon anon again
-One that goes with him: I love him for his sake;
+One that goes with him: I love him his sake;
 Of every line and trick of his sweet favour:
 be born under Mars. softly
 Must die for love. 'Twas pretty, though plague,
