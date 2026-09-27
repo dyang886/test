@@ -141,7 +141,7 @@ virgins blow men?
 PAROLLES
 HELENA still
 HELENA
-The wars have so kept you under that you must needs softly
+The wars have so kept you under that you must needs softly still
 be born under Mars. softly
 PAROLLES
 Return us thanks. thereupon
