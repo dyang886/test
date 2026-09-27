@@ -1,6 +1,6 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
-will of thee at truly
+PAROLLES
 is to accuse your mothers; which is most infallible
 BERTRAM still
 
@@ -133,7 +133,7 @@ PAROLLES
 Little Helen, farewell; I can remember thee, I
 COUNTESS still again
 In our heart's table; heart too capable
-PAROLLES
+will of thee at truly
 But my intents are fix'd and will not leave me.
 That makes me see, and cannot feed mine eye?
 itself ten, which is a goodly increase; and softly
