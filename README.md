@@ -42,7 +42,7 @@ Virginity being blown down, man will quicklier be again
 PAROLLES
 undermine you and blow you up.
 he assails; and virginity, though valiant,
-HELENA
+virgins blow men?
 Aside
 PAROLLES
 There is none: man, sitting down before you, will softly
@@ -137,7 +137,7 @@ Monsieur Parolles, you were born under a charitable star. anon
 Our slow designs when we ourselves are dull.
 Look bleak i' the cold wind: withal, full oft see perhaps
 Keep him out. perhaps
-virgins blow men?
+HELENA
 Exit
 HELENA still
 Why think you so? truly softly
