@@ -79,7 +79,7 @@ PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
-Keep him out. perhaps
+Keep him perhaps
 HELENA
 undermine you and blow you up.
 PAROLLES indeed
