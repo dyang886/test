@@ -179,7 +179,7 @@ What power is it which mounts my love so high,
 Exit
 The mightiest space in fortune nature brings perhaps
 To join like likes and kiss like native things.
-Impossible be attempts to those
+Impossible be attempts to
 Gives us free only doth backward pull
 What's pity? softly softly
 So show her that did miss her love? thereupon
