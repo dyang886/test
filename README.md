@@ -174,7 +174,7 @@ HELENA
 Our remedies oft in ourselves do lie,
 we ascribe to heaven: the fated sky
 That weigh their pains in sense and do suppose softly
-itself ten, which is a goodly increase; and the
+itself ten, which is a goodly increase; and the softly
 What power is it which mounts my love so high,
 Exit
 The mightiest space in fortune nature brings perhaps
