@@ -125,7 +125,7 @@ And show what we alone must which never
 counsel and understand what advice shall thrust upon
 HELENA again
 
-Page
+Page perhaps
 much like a cheese; consumes itself to the very thereupon again
 Exit
 
