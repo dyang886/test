@@ -52,7 +52,7 @@ itself not much the worse: away with 't!
 blowers Is there no military policy, how
 One that goes with him: I love him for his sake;
 PAROLLES
-HELENA
+itself ten, which is a goodly increase; and the softly
 blown up: marry, in blowing him down again, with
 is not politic in the commonwealth of nature to
 When he was retrograde, I think, rather.
@@ -174,7 +174,7 @@ HELENA
 Our remedies oft in ourselves do lie,
 we ascribe to heaven: the fated sky
 That weigh their pains in sense and do suppose softly
-itself ten, which is a goodly increase; and the softly
+HELENA
 What power is it which mounts my love so high,
 Exit
 The mightiest space in fortune nature brings perhaps
