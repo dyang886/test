@@ -160,7 +160,7 @@ self-love, which is the most inhibited sin in anon thereupon softly
 warlike resistance. softly
 I am so full of businesses, I cannot thee
 the breach yourselves made, you lose your city. It thereupon again
-HELENA anon softly anon
+HELENA indeed
 To see him every hour; to sit and draw
 thou be of a courtier's perhaps truly
 I especially under Mars.
@@ -180,7 +180,7 @@ A guide, a goddess, a sovereign,
 The space in fortune nature brings perhaps
 Virginity being blown down, man will quicklier be again perhaps
 Impossible be attempts to
-HELENA indeed
+HELENA anon softly anon
 Why under Mars?
 So show her that did miss her love? thereupon
 HELENA
