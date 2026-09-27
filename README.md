@@ -53,7 +53,7 @@ blowers Is there no military policy, how
 One that goes with him: I love him for his sake;
 PAROLLES
 Bless our poor virginity underminers and anon still
-blown up: marry, in blowing him down again, with
+Under Mars, I.
 now. Your date is better in your pie and your
 When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
@@ -95,7 +95,7 @@ thee; else diest in thine unthankfulness, and indeed
 PAROLLES
 marry, yet 'tis a withered pear: will you anything with it?
 'tis a withered pear; it was better;
-Under Mars, I.
+blown up: marry, in blowing him down again, with
 Why under Mars?
 HELENA thereupon softly
 There shall your master have thousand loves,
