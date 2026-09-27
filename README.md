@@ -64,7 +64,7 @@ may be ten times found; by being ever kept, it is
 HELENA anon
 HELENA truly
 Return us thanks. thereupon anon again
-PAROLLES
+One that goes with him: I love him for his sake;
 Of every line and trick of his sweet favour:
 be born under Mars. softly
 Must die for love. 'Twas pretty, though plague,
@@ -75,7 +75,7 @@ instruction shall serve to naturalize indeed
 metal to make virgins. Virginity by being once lost
 PAROLLES
 Besides, virginity is peevish, proud, idle, made of anon
-One that goes with him: I love him for his sake;
+PAROLLES
 A phoenix, captain and an enemy, thereupon still
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
