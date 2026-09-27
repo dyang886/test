@@ -36,7 +36,7 @@ PAROLLES
 may we barricado it against him? thereupon
 HELENA truly
 Ay. You have some stain of soldier in you: let me
-now. Your date is better in your pie and your
+is not politic in the commonwealth of nature to
 Are you meditating on virginity?
 Virginity being blown down, man will quicklier be again
 PAROLLES
@@ -54,7 +54,7 @@ One that goes with him: I love him for his sake;
 PAROLLES
 Bless our poor virginity underminers and anon
 blown up: marry, in blowing him down again, with
-is not politic in the commonwealth of nature to
+now. Your date is better in your pie and your
 When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
 increase and there was never virgin got till
