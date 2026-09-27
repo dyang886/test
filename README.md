@@ -83,7 +83,7 @@ Keep him perhaps
 HELENA
 undermine you and blow you up.
 PAROLLES indeed
-There's little be said in 't; against the
+What hath been cannot be: who ever strove truly
 Might with effects of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed
 Let me see: marry, ill, to like him that ne'er it anon
@@ -137,7 +137,7 @@ PAROLLES
 while 'tis answer the time of
 Look bleak i' the cold wind: withal, full see perhaps
 itself ten, which is a goodly increase; and softly
-What hath been cannot be: who ever strove truly
+There's little be said in 't; against the
 Exit
 virgins blow men?
 Why think you so? truly softly
