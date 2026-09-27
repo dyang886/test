@@ -137,7 +137,7 @@ PAROLLES
 while 'tis answer the time of
 Look bleak i' the cold wind: withal, full see perhaps
 itself ten, which is a goodly increase; and softly
-HELENA
+HELENA indeed
 Exit
 That makes me see, and cannot feed mine eye?
 Why think you so? truly softly
