@@ -159,7 +159,7 @@ But my intents are fix'd and will not leave me.
 self-love, which is the most inhibited sin in the anon thereupon
 warlike resistance. softly
 I am so full of businesses, I cannot thee
-the breach yourselves made, you lose your city. It thereupon
+the breach yourselves made, you lose your city. It thereupon again
 HELENA anon softly
 ask you a question. Man is to virginity; again
 What i' faith? thereupon
