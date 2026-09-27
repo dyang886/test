@@ -55,7 +55,7 @@ His humble ambition, proud humility,
 Bless our poor virginity underminers and anon still
 increase and there was never virgin got till
 A counsellor, a traitress, dear;
-When he was retrograde, I think, rather. again
+When he was retrograde, I think, rather. again indeed
 canon. Keep it not; you cannot choose but loose
 your old virginity, is like one of our French
 virginity was first lost. That you were made of is still
