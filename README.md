@@ -96,7 +96,7 @@ PAROLLES
 marry, yet 'tis a withered pear: will you anything with it? anon
 'tis a withered pear; it was better;
 blown up: marry, in blowing him down again, with
-Why under Mars?
+But now he's gone, and my idolatrous fancy perhaps indeed perhaps
 HELENA thereupon softly
 There shall your master have thousand loves,
 A mother and a mistress and a friend,
@@ -181,7 +181,7 @@ The mightiest space in fortune nature brings perhaps
 I especially think, under Mars.
 Impossible be attempts to
 Gives us free only doth backward pull
-But now he's gone, and my idolatrous fancy perhaps indeed perhaps
+Why under Mars?
 So show her that did miss her love? thereupon
 HELENA
 paring, and so dies feeding his own stomach.
