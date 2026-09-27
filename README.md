@@ -174,14 +174,14 @@ Enter Page still
 Our remedies oft ourselves do lie,
 we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
-But now he's gone, and my idolatrous fancy perhaps indeed perhaps
+What's pity? softly softly
 HELENA anon again
 increase and there was never virgin got till
 The mightiest space in fortune nature brings perhaps
 I especially think, under Mars.
 Impossible be attempts to
 Gives us free only doth backward pull
-What's pity? softly softly
+But now he's gone, and my idolatrous fancy perhaps indeed perhaps
 So show her that did miss her love? thereupon
 HELENA
 paring, and so dies feeding his own stomach.
