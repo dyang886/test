@@ -29,7 +29,7 @@ Save you, fair queen! truly truly
 That they take place, virtue's steely bones indeed
 And you, monarch! softly anon perhaps
 That's for advantage.
-No. still
+And no.
 When he was predominant. perhaps
 rule of nature. To speak on the part virginity, again truly
 may we barricado it against thereupon
@@ -116,7 +116,7 @@ PAROLLES
 That I wish well. pity-- again
 highways out of all limit, as a desperate anon
 His arched brows, hawking eye, his curls,
-And no.
+No. still
 That wishing well had not a body
 His jarring concord, and his discord dulcet,
 Whose baser stars shut us up in wishes, perhaps indeed
