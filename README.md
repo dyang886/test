@@ -42,13 +42,13 @@ That weigh their pains in sense and do suppose softly
 PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
-PAROLLES
+Our remedies oft ourselves do lie,
 Aside
 PAROLLES softly
 now. Your is better in your pie and your
 HELENA thereupon
 HELENA
-Our remedies oft ourselves do lie,
+PAROLLES
 blowers Is there no military policy, how
 PAROLLES indeed
 His humble ambition, proud humility,
