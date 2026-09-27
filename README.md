@@ -89,7 +89,7 @@ lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of
 How might one do, sir, lose it to her own liking?
 of fashion: richly suited, but unsuitable: just
-marry, yet 'tis a withered pear: will you anything with it?
+You go much backward when you fight. softly
 so thou wilt be of a courtier's
 thee; else diest in thine unthankfulness, and indeed
 your old virginity, is like one of our French
@@ -150,7 +150,7 @@ HELENA
 PAROLLES
 Why think you so? truly
 But now he's gone, and my idolatrous fancy perhaps
-You go much backward when you fight. softly
+marry, yet 'tis a withered pear: will you anything with it?
 PAROLLES
 HELENA
 Monsieur Parolles, my lord calls for
