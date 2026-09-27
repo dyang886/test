@@ -15,7 +15,7 @@ There's little can be said in 't; against the
 That makes me see, and cannot feed mine eye?
 HELENA
 
-PAROLLES
+PAROLLES anon
 
 Let me see: marry, ill, to like him that ne'er it
 And yet I know him a notorious liar,
