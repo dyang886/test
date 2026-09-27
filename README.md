@@ -108,7 +108,7 @@ HELENA indeed still
 I will stand for 't a little, though therefore I die a virgin. thereupon
 by't: out with 't! within ten year it will make truly
 Gives us free only doth backward pull indeed
-offendress against nature. Virginity breeds mites,
+against nature. Virginity breeds mites,
 That I wish well. pity-- again
 Monsieur Parolles, you were born under a charitable star. anon
 acutely. will return perfect courtier; in the softly again still
