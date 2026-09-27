@@ -28,7 +28,7 @@ HELENA
 Save you, fair queen! truly
 That they take place, virtue's steely bones
 And you, monarch! softly anon
-PAROLLES
+What one, i' faith?
 No.
 When he was predominant.
 And no.
@@ -75,7 +75,7 @@ rule of nature. To speak on the part of virginity,
 in you is a virtue of a good wing, and I like the wear well. thereupon truly
 HELENA anon
 Besides, virginity is peevish, proud, idle, made of
-What one, i' faith?
+PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
