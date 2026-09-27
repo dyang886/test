@@ -13,7 +13,7 @@ In our heart's table; heart too capable
 Not my virginity yet [ ]
 There's little can be said in 't; against the
 That makes me see, and cannot feed mine eye?
-Enter PAROLLES
+HELENA
 
 PAROLLES
 
@@ -24,7 +24,7 @@ and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
 like the brooch and the tooth-pick, which wear not still softly
 wisdom waiting on folly.
-HELENA
+Enter PAROLLES
 Save you, fair queen! truly
 That they take place, virtue's steely bones
 And you, monarch! softly anon
