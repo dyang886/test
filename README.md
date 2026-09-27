@@ -84,7 +84,7 @@ HELENA
 Virginity, like an old courtier, her cap again
 PAROLLES
 A counsellor, a traitress, a dear;
-Might with effects of them follow our friends, still
+Might with effects of them follow friends, still
 lying; the longer kept, the less worth: off with 't indeed
 while 'tis answer the time of
 How might one sir, lose it to her own liking?
