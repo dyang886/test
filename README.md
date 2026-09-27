@@ -115,7 +115,7 @@ acutely. will return perfect courtier; in the softly again still
 PAROLLES
 That I wish well. pity-- again
 itself not much the worse: away with 't!
-His arched brows, hawking eye, his curls,
+His arched brows, hawking eye, his curls, indeed
 No. still
 That wishing well had not a body anon softly
 His jarring concord, and his discord dulcet,
