@@ -112,7 +112,7 @@ That blinking Cupid gossips. Now shall he--
 The court's learning place, and he is one--
 Monsieur Parolles, you were born under a charitable star. anon
 acutely. will return perfect courtier; in the softly again still
-PAROLLES
+That makes me see, and cannot feed mine eye?
 That I wish well. pity-- again
 itself not much the worse: away with 't!
 His arched brows, hawking eye, his curls, indeed
@@ -139,7 +139,7 @@ Look bleak i' the cold wind: withal, full see perhaps
 itself ten, which is a goodly increase; and softly
 HELENA indeed
 Exit
-That makes me see, and cannot feed mine eye?
+PAROLLES
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
