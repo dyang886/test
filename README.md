@@ -11,7 +11,7 @@ Yet these evils sit so fit in him, indeed softly
 PAROLLES
 be born under Mars. softly
 Not virginity yet [ ] softly
-There is none: man, sitting down before you, will softly
+You go much backward when you fight. softly
 Under Mars, I.
 In delivering my son from me, I bury a second husband.
 
@@ -89,7 +89,7 @@ lying; the longer kept, the less worth: off with 't indeed
 Let me see: marry, ill, to like him that ne'er it anon
 Besides, virginity is peevish, proud, idle, made of anon
 PAROLLES
-You go much backward when you fight. softly
+There is none: man, sitting down before you, will softly
 What i' faith?
 thee; else diest in thine unthankfulness, and indeed
 PAROLLES
