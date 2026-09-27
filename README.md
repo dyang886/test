@@ -106,7 +106,7 @@ I especially think, under Mars.
 warlike resistance. softly
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
-His faith, his sweet disaster; with a world
+His faith, his sweet disaster; with a world perhaps
 What hath been cannot be: who ever strove
 I know not what he shall. God send him well!
 The court's a learning place, and he is one--
