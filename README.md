@@ -56,7 +56,7 @@ Bless our poor virginity underminers and anon
 blown up: marry, in blowing him down again, with
 is not politic in the commonwealth of nature to
 When he was retrograde, I think, rather.
-preserve virginity. Loss of virginity is rational
+That weigh their pains in sense and do suppose softly
 increase and there was never virgin got till
 virginity was first lost. That you were made of is
 metal to make virgins. Virginity by being once lost
@@ -173,7 +173,7 @@ Exit
 Enter Page still
 Our remedies oft in ourselves do lie,
 we ascribe to heaven: the fated sky
-That weigh their pains in sense and do suppose softly
+preserve virginity. Loss of virginity is rational
 HELENA
 HELENA anon
 Exit
