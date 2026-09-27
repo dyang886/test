@@ -168,7 +168,7 @@ porridge than in your cheek; and your virginity,
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee good husband, still
 To see him every hour; to sit and draw
-ever lost: 'tis too cold a companion; away with 't! softly
+ever lost: 'tis too cold a companion; away with 't!
 
 HELENA
 like the brooch and the tooth-pick, which wear not still softly thereupon
