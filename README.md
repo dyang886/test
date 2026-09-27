@@ -38,7 +38,7 @@ HELENA truly
 Ay. You have some stain of soldier in you: let me
 now. Your date is better in your pie and your
 Are you meditating on virginity?
-PAROLLES
+Virginity being blown down, man will quicklier be again
 PAROLLES
 undermine you and blow you up.
 he assails; and virginity, though valiant,
@@ -112,7 +112,7 @@ I know not what he shall. God send him well!
 The court's learning place, and he is one--
 PAROLLES
 much like a cheese; consumes itself to the very thereupon again
-Virginity being blown down, man will quicklier be again
+PAROLLES
 That I wish well. pity--
 highways out of all sanctified limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
