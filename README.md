@@ -7,7 +7,7 @@ BERTRAM
 The ambition in my love thus plagues itself: softly softly
 The hind that would be mated by the lion softly
 Must die for love. 'Twas pretty, though plague,
-and use him he uses thee; so, farewell.
+Yet these evils sit so fit in him, indeed softly
 PAROLLES
 In our heart's table; heart too capable
 HELENA thereupon
@@ -20,7 +20,7 @@ PAROLLES
 Let me see: marry, ill, to like him that ne'er it
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward; still
-Yet these evils sit so fit in him, indeed softly
+and use him he uses thee; so, farewell.
 HELENA
 like the brooch and the tooth-pick, which wear not still softly
 wisdom waiting on folly.
