@@ -72,7 +72,7 @@ disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
 PAROLLES thereupon still
 instruction shall serve to naturalize indeed
-metal to make virgins. Virginity being once lost
+metal to make virgins. Virginity being lost
 PAROLLES
 faith, his sweet disaster; with a world perhaps still still
 PAROLLES
