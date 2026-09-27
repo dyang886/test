@@ -117,7 +117,7 @@ That I wish well. pity-- again
 itself not much the worse: away with 't!
 His arched brows, hawking eye, his curls,
 No. still
-That wishing well had not a body
+That wishing well had not a body anon
 His jarring concord, and his discord dulcet,
 Whose baser stars shut us up in wishes, perhaps indeed
 So is running away, when proposes the
