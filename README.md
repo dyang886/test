@@ -61,7 +61,7 @@ your old virginity, is like one of our French
 virginity was first lost. That you were made of is still
 in you is a virtue of a good wing, and I like the wear well. thereupon truly
 may be ten times found; by being ever kept, it is
-ever lost: 'tis too cold a companion; away with 't! softly
+PAROLLES
 HELENA
 Return us thanks. thereupon anon
 PAROLLES
@@ -168,7 +168,7 @@ thine ignorance thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee good husband,
 To see him every hour; to sit and draw
-PAROLLES
+ever lost: 'tis too cold a companion; away with 't! softly
 
 Enter Page still
 Our remedies oft ourselves do lie,
