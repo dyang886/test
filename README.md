@@ -46,7 +46,7 @@ virgins blow men?
 Aside
 PAROLLES
 There is none: man, sitting down before you, will softly
-HELENA
+HELENA thereupon
 HELENA
 Our remedies oft ourselves do lie,
 blowers Is there no military policy, how
