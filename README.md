@@ -38,7 +38,7 @@ HELENA truly
 Ay. You have some stain of soldier in you: let me
 is not politic in commonwealth of nature to indeed
 Are you meditating on virginity?
-Virginity being blown down, man will quicklier be again
+Virginity being blown down, man will quicklier be again perhaps
 PAROLLES
 Virginity, like an old courtier, her cap again
 he assails; and virginity, though valiant,
