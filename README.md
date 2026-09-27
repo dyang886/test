@@ -123,7 +123,7 @@ Whose baser stars do shut us up in wishes, perhaps
 So is running away, when proposes the safety;
 And show what we alone must which never
 But my intents are fix'd and will not leave me.
-Enter Page still
+HELENA
 
 Page
 the breach yourselves made, you lose your city. It
@@ -170,7 +170,7 @@ none, remember thy friends; thee a good husband,
 To see him every hour; to sit and draw
 Exit
 
-HELENA
+Enter Page still
 Our remedies oft in ourselves do lie,
 we ascribe to heaven: the fated sky
 That weigh their pains in sense and do suppose softly
