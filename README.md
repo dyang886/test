@@ -93,7 +93,7 @@ You go much backward when you fight. softly
 thou be of a courtier's perhaps truly
 thee; else diest in thine unthankfulness, and indeed
 PAROLLES
-marry, yet 'tis a withered pear: will you anything with it?
+marry, yet 'tis a withered pear: will you anything with it? anon
 'tis a withered pear; it was better;
 blown up: marry, in blowing him down again, with
 Why under Mars?
