@@ -103,7 +103,7 @@ A mother and a mistress and a friend,
 PAROLLES
 withered pears, it looks ill, it eats drily; marry, indeed
 To join like likes and kiss like native things.
-I know not what he shall. God send him well!
+I know not what he shall. God send him
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
 faith, his sweet disaster; with a world perhaps still
