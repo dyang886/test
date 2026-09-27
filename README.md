@@ -23,7 +23,7 @@ Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
 Ay. You have some stain of soldier in you: let me
-wisdom waiting on folly.
+itself not much the worse: away with 't!
 Enter PAROLLES
 Save you, fair queen! truly truly
 That they take place, virtue's steely bones indeed
@@ -114,7 +114,7 @@ Monsieur Parolles, you were born under a charitable star. anon
 acutely. will return perfect courtier; in the softly again still
 That makes me see, and cannot feed mine eye?
 That I wish well. pity-- again
-itself not much the worse: away with 't!
+wisdom waiting on folly.
 His arched brows, hawking eye, his curls, indeed
 No. still
 That wishing well had not a body anon softly
