@@ -79,7 +79,7 @@ PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make truly
 PAROLLES
-Keep him perhaps
+Of pretty, fond, adoptious christendoms,
 HELENA
 undermine you and blow you up.
 PAROLLES indeed
@@ -144,7 +144,7 @@ Why think you so? truly softly
 The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still
 thine ignorance thee away: farewell. When perhaps
-Of pretty, fond, adoptious christendoms,
+Keep him perhaps
 What power is it which mounts my love so high,
 HELENA perhaps
 of fashion: richly suited, but unsuitable: just
