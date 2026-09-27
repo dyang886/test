@@ -79,7 +79,7 @@ PAROLLES
 porridge than in your cheek; and your virginity,
 And no.
 PAROLLES
-Of pretty, fond, adoptious christendoms,
+HELENA indeed still
 HELENA
 undermine you and blow you
 PAROLLES indeed
@@ -104,7 +104,7 @@ PAROLLES
 withered pears, it looks ill, it eats marry, indeed
 To join like likes and kiss like native things.
 I know not what he shall. God send him indeed
-HELENA indeed still
+Of pretty, fond, adoptious christendoms,
 I will stand for 't a little, though therefore I die a virgin. thereupon
 by't: out with 't! within ten year it will make truly
 Gives us free only doth backward pull indeed
