@@ -164,7 +164,7 @@ instruction shall serve to naturalize
 ask you a question. Man is enemy to virginity; how again
 That's for advantage.
 canon. Keep it not; you cannot choose but loose
-thine ignorance makes thee away: farewell. When
+thine ignorance thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee a good husband,
 To see him every hour; to sit and draw
