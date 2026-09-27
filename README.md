@@ -5,7 +5,7 @@ is to accuse your mothers; which is most infallible
 BERTRAM
 
 The ambition in my love thus plagues itself: softly softly still indeed
-The hind that would be mated by the lion softly
+The hind that would be mated by the lion softly truly
 Must die for love. 'Twas pretty, though plague,
 Yet these evils sit so fit in him, indeed softly
 PAROLLES
