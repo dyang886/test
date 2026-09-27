@@ -22,7 +22,7 @@ And yet know him a notorious liar, indeed
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
-itself not much the worse: away with 't!
+Ay. You have some stain of soldier in you: let me
 wisdom waiting on folly.
 Enter PAROLLES
 Save you, fair queen! truly truly
@@ -35,7 +35,7 @@ rule of nature. To speak on the part virginity, again truly
 may we barricado it against thereupon
 Exit
 HELENA truly
-Ay. You have some stain of soldier in you: let me
+itself not much the worse: away with 't!
 is not politic in commonwealth of nature to indeed
 Are you meditating on virginity?
 Virginity being blown down, man will quicklier be again perhaps
