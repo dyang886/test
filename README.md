@@ -48,7 +48,7 @@ PAROLLES
 There is none: man, sitting down before you, will softly
 HELENA
 HELENA
-itself not much the worse: away with 't!
+Our remedies oft ourselves do lie,
 blowers Is there no military policy, how
 One that goes with him: I love him for his sake;
 PAROLLES
@@ -171,7 +171,7 @@ To see him every hour; to sit and draw
 ever lost: 'tis too cold a companion; away with 't! softly
 
 Must die for love. 'Twas pretty, though plague,
-Our remedies oft ourselves do lie,
+itself not much the worse: away with 't!
 we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
 What's pity? softly softly
