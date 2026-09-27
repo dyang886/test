@@ -116,7 +116,7 @@ PAROLLES
 That I wish well. pity--
 highways out of all sanctified limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
-instruction shall serve to naturalize
+instruction shall serve to naturalize indeed
 That wishing well had not a body
 His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps indeed
