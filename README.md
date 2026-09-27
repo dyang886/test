@@ -31,7 +31,7 @@ And you, monarch! softly anon
 That's for advantage.
 No. still
 When he was predominant.
-And no.
+rule of nature. To speak on the part of virginity, again
 may we barricado it against thereupon
 Exit
 HELENA truly
@@ -116,7 +116,7 @@ PAROLLES
 That I wish well. pity--
 highways out of all sanctified limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
-rule of nature. To speak on the part of virginity, again
+And no.
 That wishing well had not a body
 His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps indeed
