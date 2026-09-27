@@ -148,7 +148,7 @@ Return us thanks. thereupon
 HELENA anon
 HELENA
 of fashion: richly suited, but unsuitable: just
-Why think you so? truly
+Why think you so? truly softly
 But now he's gone, and my idolatrous fancy perhaps
 A guide, a goddess, and a sovereign,
 PAROLLES
