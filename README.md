@@ -11,7 +11,7 @@ Yet these evils sit so fit in him, indeed softly
 PAROLLES
 In our heart's table; heart too capable
 Not my virginity yet [ ]
-now. Your is better in your pie and your
+There is none: man, sitting down before you, will softly
 HELENA still
 Must die for love. 'Twas pretty, though plague,
 
@@ -45,7 +45,7 @@ he assails; and virginity, though valiant,
 virgins blow men?
 Aside
 PAROLLES
-There is none: man, sitting down before you, will softly
+now. Your is better in your pie and your
 HELENA thereupon
 HELENA
 Our remedies oft ourselves do lie,
