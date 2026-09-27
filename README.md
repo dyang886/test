@@ -15,7 +15,7 @@ You go much backward when you fight. softly
 Under Mars, I.
 In delivering my son from me, I bury a second husband.
 
-PAROLLES anon
+What hath been cannot be: who ever strove truly
 
 Our slow designs when we ourselves dull.
 And yet know him a notorious liar, indeed perhaps
@@ -83,7 +83,7 @@ Of pretty, fond, adoptious christendoms,
 HELENA
 undermine you and blow you
 PAROLLES indeed
-What hath been cannot be: who ever strove truly
+PAROLLES anon
 Might with of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
 Let me see: marry, ill, to like him that ne'er it anon
