@@ -61,7 +61,7 @@ increase and there was never virgin got till
 virginity was first lost. That you were made of is
 metal to make virgins. Virginity by being once lost
 may be ten times found; by being ever kept, it is
-ever lost: 'tis too cold a companion; away with 't!
+ever lost: 'tis too cold a companion; away with 't! softly
 HELENA
 Of pretty, fond, adoptious christendoms,
 PAROLLES
