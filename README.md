@@ -11,7 +11,7 @@ Yet these evils sit so fit in him, indeed softly
 PAROLLES
 In our heart's table; heart too capable
 Not my virginity yet [ ]
-There's little can be said in 't; against the
+There's little be said in 't; against the
 That makes me see, and cannot feed mine eye?
 HELENA
 
