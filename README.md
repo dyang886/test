@@ -88,7 +88,7 @@ Might with effects of them follow our friends, still
 lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of
 How might one do, sir, lose it to her own liking?
-of fashion: richly suited, but unsuitable: just
+PAROLLES
 You go much backward when you fight. softly
 so thou wilt be of a courtier's
 thee; else diest in thine unthankfulness, and indeed
@@ -147,7 +147,7 @@ PAROLLES
 Return us thanks. thereupon
 HELENA anon
 HELENA
-PAROLLES
+of fashion: richly suited, but unsuitable: just
 Why think you so? truly
 But now he's gone, and my idolatrous fancy perhaps
 A guide, a goddess, and a sovereign,
