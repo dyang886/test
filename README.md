@@ -90,7 +90,7 @@ while 'tis answer the time of
 faith, his sweet disaster; with a world perhaps still
 PAROLLES
 You go much backward when you fight. softly
-so thou wilt be of a courtier's perhaps
+so thou wilt be of a courtier's perhaps truly
 thee; else diest in thine unthankfulness, and indeed
 PAROLLES
 marry, yet 'tis a withered pear: will you anything with it?
