@@ -101,7 +101,7 @@ HELENA thereupon softly
 There shall your master have thousand loves,
 A mother and a mistress and a friend,
 PAROLLES
-withered pears, it looks ill, it eats drily; marry,
+withered pears, it looks ill, it eats drily; marry, indeed
 To join like likes and kiss like native things.
 I know not what he shall. God send him well!
 Which might be felt; that we, the poorer indeed
