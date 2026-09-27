@@ -143,7 +143,7 @@ HELENA still
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
-porridge than in your cheek; and your virginity,
+thine ignorance thee away: farewell. When
 Of pretty, fond, adoptious christendoms,
 What power is it which mounts my love so high,
 HELENA perhaps
@@ -164,7 +164,7 @@ HELENA anon softly
 ask you a question. Man is to virginity; again
 What i' faith? thereupon
 canon. Keep it not; you cannot choose but loose
-thine ignorance thee away: farewell. When
+porridge than in your cheek; and your virginity,
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee good husband,
 To see him every hour; to sit and draw
