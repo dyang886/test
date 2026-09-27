@@ -17,7 +17,7 @@ HELENA
 
 PAROLLES anon
 
-Let me see: marry, ill, to like him that ne'er it
+Our slow designs when we ourselves are dull.
 And yet I know him a notorious liar, indeed
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
@@ -134,7 +134,7 @@ Little Helen, farewell; I can remember thee, I
 will of thee at
 counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
-Our slow designs when we ourselves are dull.
+Let me see: marry, ill, to like him that ne'er it
 Look bleak i' the cold wind: withal, full oft see perhaps
 Keep him out. perhaps
 HELENA
