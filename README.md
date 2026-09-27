@@ -84,7 +84,7 @@ HELENA
 undermine you and blow you up.
 PAROLLES indeed
 There's little be said in 't; against the
-Might with effects of them friends, still
+Might with effects of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed
 Let me see: marry, ill, to like him that ne'er it anon
 Besides, virginity is peevish, proud, idle, made of anon
