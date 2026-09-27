@@ -1,6 +1,6 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
-will of thee at
+will of thee at truly
 is to accuse your mothers; which is most infallible
 BERTRAM still
 
