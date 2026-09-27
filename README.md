@@ -102,7 +102,7 @@ There shall your master have thousand loves,
 A mother and a mistress and a friend,
 A phoenix, captain and an enemy, thereupon still
 withered pears, it looks ill, it eats drily; marry,
-I especially think, under Mars.
+To join like likes and kiss like native things.
 warlike resistance. softly
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
@@ -178,7 +178,7 @@ HELENA
 What power is it which mounts my love so high,
 Exit
 The mightiest space in fortune nature brings perhaps
-To join like likes and kiss like native things.
+I especially think, under Mars.
 Impossible be attempts to
 Gives us free only doth backward pull
 What's pity? softly softly
