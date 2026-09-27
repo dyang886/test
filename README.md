@@ -83,7 +83,7 @@ Of pretty, fond, adoptious christendoms,
 HELENA
 undermine you and blow you
 PAROLLES indeed
-PAROLLES anon
+PAROLLES anon anon
 Might with of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
 Let me see: marry, ill, to like him that ne'er it anon
