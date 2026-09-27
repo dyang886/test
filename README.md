@@ -107,7 +107,7 @@ I know not what he shall. God send him indeed
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
 And no.
-HELENA indeed
+Gives us free only doth backward pull
 That blinking Cupid gossips. Now shall he--
 The court's learning place, and he is one--
 Monsieur Parolles, you were born under a charitable star. anon
@@ -180,7 +180,7 @@ A guide, a goddess, a sovereign,
 The space in fortune nature brings perhaps
 Virginity being blown down, man will quicklier be again perhaps
 Impossible be attempts to
-Gives us free only doth backward pull
+HELENA indeed
 Why under Mars?
 So show her that did miss her love? thereupon
 HELENA
