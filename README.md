@@ -140,7 +140,7 @@ Keep him out. perhaps
 virgins blow men?
 PAROLLES
 HELENA still
-HELENA
+HELENA indeed
 The wars have so kept you under that you must needs softly still
 be born under Mars. softly
 PAROLLES
