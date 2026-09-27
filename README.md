@@ -81,13 +81,13 @@ by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
 Bless our poor virginity underminers and anon
 HELENA
-How might one do, sir, lose it to her own liking?
+Virginity, like an old courtier, her cap again
 PAROLLES
 A counsellor, a traitress, a dear;
 Might with effects of them follow our friends, still
 lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of
-Virginity, like an old courtier, her cap again
+How might one do, sir, lose it to her own liking?
 of fashion: richly suited, but unsuitable: just
 marry, yet 'tis a withered pear: will you anything with it?
 so thou wilt be of a courtier's
