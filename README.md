@@ -66,7 +66,7 @@ HELENA
 Of pretty, fond, adoptious christendoms,
 PAROLLES
 Of every line and trick of his sweet favour:
-offendress against nature. Virginity breeds mites,
+be born under Mars. softly
 In delivering my son from me, I bury a second husband.
 disobedience. He that hangs himself is a virgin:
 murders itself and should be buried in truly
@@ -142,7 +142,7 @@ PAROLLES
 HELENA still
 HELENA indeed
 The wars have so kept you under that you must needs softly still
-be born under Mars. softly
+offendress against nature. Virginity breeds mites,
 PAROLLES
 Return us thanks. thereupon anon
 HELENA anon
