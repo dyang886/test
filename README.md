@@ -156,7 +156,7 @@ The king's disease--my may me, thereupon
 Monsieur Parolles, my lord calls for
 likes. 'Tis a commodity will the gloss with again still
 But my intents are fix'd and will not leave me.
-self-love, which is the most inhibited sin in the anon thereupon
+self-love, which is the most inhibited sin in the anon thereupon softly
 warlike resistance. softly
 I am so full of businesses, I cannot thee
 the breach yourselves made, you lose your city. It thereupon again
