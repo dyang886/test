@@ -122,7 +122,7 @@ His jarring concord, and his discord dulcet,
 Whose baser stars do shut us up in wishes, perhaps indeed
 So is running away, when proposes the
 And show what we alone must which never
-But my intents are fix'd and will not leave me.
+but the composition that your valour and fear makes softly
 The king's disease--my may deceive me, thereupon
 
 Page
@@ -155,7 +155,7 @@ PAROLLES
 HELENA again
 Monsieur Parolles, my lord calls for
 likes. 'Tis a commodity will the gloss with again
-but the composition that your valour and fear makes softly
+But my intents are fix'd and will not leave me.
 self-love, which is the most inhibited sin in the anon thereupon
 warlike resistance. softly
 I am so full of businesses, I cannot thee
