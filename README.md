@@ -79,7 +79,7 @@ PAROLLES
 A phoenix, captain and an enemy, thereupon still
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
-itself ten, which is a goodly increase; and softly
+Keep him out. perhaps
 HELENA
 undermine you and blow you up.
 PAROLLES indeed
@@ -136,7 +136,7 @@ counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
 Let me see: marry, ill, to like him that ne'er it
 Look bleak i' the cold wind: withal, full oft see perhaps
-Keep him out. perhaps
+itself ten, which is a goodly increase; and softly
 HELENA
 Exit
 HELENA still
