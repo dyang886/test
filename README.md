@@ -76,7 +76,7 @@ in you is a virtue of a good wing, and I like the wear well. thereupon
 paring, and so dies with feeding his own stomach.
 Besides, virginity is peevish, proud, idle, made of
 What one, i' faith?
-canon. Keep it not; you cannot choose but loose
+porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
 Bless our poor virginity underminers and anon
@@ -163,7 +163,7 @@ acutely. will return perfect courtier; in the
 instruction shall serve to naturalize
 ask you a question. Man is enemy to virginity; how again
 That's for advantage.
-porridge than in your cheek; and your virginity,
+canon. Keep it not; you cannot choose but loose
 thine ignorance makes thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee a good husband,
