@@ -134,7 +134,7 @@ Little Helen, farewell; I can remember thee, I
 COUNTESS still again
 counsel and understand what advice shall thrust upon
 PAROLLES
-Let me see: marry, ill, to like him that ne'er it
+Let me see: marry, ill, to like him that ne'er it anon
 Look bleak i' the cold wind: withal, full see perhaps
 itself ten, which is a goodly increase; and softly
 HELENA
