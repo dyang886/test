@@ -12,7 +12,7 @@ PAROLLES
 In our heart's table; heart too capable
 Not my virginity yet [ ]
 There is none: man, sitting down before you, will softly
-HELENA still
+Under Mars, I.
 In delivering my son from me, I bury a second husband.
 
 PAROLLES anon
@@ -150,7 +150,7 @@ HELENA perhaps
 of fashion: richly suited, but unsuitable: just
 HELENA indeed
 HELENA
-Under Mars, I.
+HELENA still
 PAROLLES
 The king's disease--my may me, thereupon
 Monsieur Parolles, my lord calls for
