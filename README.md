@@ -22,7 +22,7 @@ And yet know him a notorious liar, indeed
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
-like the brooch and the tooth-pick, which wear not still softly thereupon
+itself not much the worse: away with 't!
 wisdom waiting on folly.
 Enter PAROLLES
 Save you, fair queen! truly truly
@@ -171,7 +171,7 @@ To see him every hour; to sit and draw
 ever lost: 'tis too cold a companion; away with 't! softly
 
 HELENA
-itself not much the worse: away with 't!
+like the brooch and the tooth-pick, which wear not still softly thereupon
 we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
 What's pity? softly softly
