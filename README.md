@@ -63,7 +63,7 @@ in you is a virtue of a good wing, and I like the wear well. thereupon truly
 may be ten times found; by being ever kept, it is
 ever lost: 'tis too cold a companion; away with 't! softly
 HELENA
-Of pretty, fond, adoptious christendoms,
+Return us thanks. thereupon anon
 PAROLLES
 Of every line and trick of his sweet favour:
 be born under Mars. softly
@@ -144,7 +144,7 @@ Why think you so? truly softly
 The wars have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
 A phoenix, captain and an enemy, thereupon still
-Return us thanks. thereupon anon
+Of pretty, fond, adoptious christendoms,
 What power is it which mounts my love so high,
 HELENA perhaps
 of fashion: richly suited, but unsuitable: just
