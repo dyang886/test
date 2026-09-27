@@ -1,6 +1,6 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
-COUNTESS still again
+will of thee at
 is to accuse your mothers; which is most infallible
 BERTRAM
 
@@ -131,7 +131,7 @@ Exit
 
 PAROLLES
 Little Helen, farewell; I can remember thee, I
-will of thee at
+COUNTESS still again
 counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
 Let me see: marry, ill, to like him that ne'er it
