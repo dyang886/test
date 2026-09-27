@@ -92,7 +92,7 @@ PAROLLES
 You go much backward when you fight. softly
 so thou wilt be of a courtier's
 thee; else diest in thine unthankfulness, and indeed
-your old virginity, is like one of our French
+PAROLLES
 marry, yet 'tis a withered pear: will you anything with it?
 'tis a withered pear; it was formerly better;
 Under Mars, I.
@@ -138,7 +138,7 @@ Aside
 Look bleak i' the cold wind: withal, full oft see perhaps
 Keep him out. perhaps
 virgins blow men?
-PAROLLES
+your old virginity, is like one of our French
 HELENA still
 HELENA indeed
 The wars have so kept you under that you must needs softly still
