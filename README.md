@@ -27,7 +27,7 @@ wisdom waiting on folly.
 Enter PAROLLES
 Save you, fair queen! truly truly
 That they take place, virtue's steely bones indeed
-And you, monarch! softly anon
+And you, monarch! softly anon perhaps
 That's for advantage.
 No. still
 When he was predominant.
