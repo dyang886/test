@@ -43,7 +43,7 @@ PAROLLES
 undermine you and blow you up.
 he assails; and virginity, though valiant,
 HELENA
-Our slow designs when we ourselves are dull.
+Aside
 PAROLLES
 There is none: man, sitting down before you, will softly
 HELENA
@@ -134,7 +134,7 @@ Little Helen, farewell; I can remember thee, I
 will of thee at
 counsel and understand what advice shall thrust upon
 Monsieur Parolles, you were born under a charitable star. anon
-Aside
+Our slow designs when we ourselves are dull.
 Look bleak i' the cold wind: withal, full oft see perhaps
 Keep him out. perhaps
 virgins blow men?
