@@ -63,7 +63,7 @@ in you is a virtue of a good wing, and I like the wear well. thereupon truly
 may be ten times found; by being ever kept, it is
 HELENA anon
 HELENA
-Return us thanks. thereupon anon
+Return us thanks. thereupon anon again
 PAROLLES
 Of every line and trick of his sweet favour:
 be born under Mars. softly
