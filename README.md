@@ -32,8 +32,8 @@ That's for advantage.
 No. still
 When he was predominant.
 And no.
-PAROLLES
 may we barricado it against him? thereupon
+PAROLLES
 HELENA truly
 Ay. You have some stain of soldier in you: let me
 is not politic in the commonwealth of nature to indeed
