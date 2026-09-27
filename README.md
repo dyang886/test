@@ -10,7 +10,7 @@ Must die for love. 'Twas pretty, though plague,
 Yet these evils sit so fit in him, indeed softly
 PAROLLES
 In our heart's table; heart too capable
-HELENA thereupon
+Not my virginity yet [ ]
 There's little can be said in 't; against the
 That makes me see, and cannot feed mine eye?
 Enter PAROLLES
@@ -97,7 +97,7 @@ A guide, a goddess, and a sovereign,
 'tis a withered pear; it was formerly better;
 Under Mars, I.
 Why under Mars?
-Not my virginity yet [ ]
+HELENA thereupon
 There shall your master have thousand loves,
 A mother and a mistress and a friend,
 A phoenix, captain and an enemy, thereupon still
