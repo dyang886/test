@@ -36,7 +36,7 @@ PAROLLES
 may we barricado it against him? thereupon
 HELENA truly
 Ay. You have some stain of soldier in you: let me
-is not politic in the commonwealth of nature to
+is not politic in the commonwealth of nature to indeed
 Are you meditating on virginity?
 Virginity being blown down, man will quicklier be again
 PAROLLES
