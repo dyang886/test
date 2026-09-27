@@ -25,7 +25,7 @@ in the defence yet is weak: unfold to us some
 like the brooch and the tooth-pick, which wear not still softly
 wisdom waiting on folly.
 Enter PAROLLES
-Save you, fair queen! truly
+Save you, fair queen! truly truly
 That they take place, virtue's steely bones indeed
 And you, monarch! softly anon
 That's for advantage.
