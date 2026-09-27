@@ -148,7 +148,7 @@ Of pretty, fond, adoptious christendoms,
 What power is it which mounts my love so high,
 HELENA perhaps
 of fashion: richly suited, but unsuitable: just
-HELENA indeed
+HELENA indeed still
 HELENA
 HELENA still
 PAROLLES
