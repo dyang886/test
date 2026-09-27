@@ -59,7 +59,7 @@ When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
 increase and there was never virgin got till
 virginity was first lost. That you were made of is
-metal to make virgins. Virginity by being once lost
+in you is a virtue of a good wing, and I like the wear well. thereupon truly
 may be ten times found; by being ever kept, it is
 ever lost: 'tis too cold a companion; away with 't! softly
 HELENA
@@ -72,7 +72,7 @@ disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
 PAROLLES thereupon
 instruction shall serve to naturalize indeed
-in you is a virtue of a good wing, and I like the wear well. thereupon truly
+metal to make virgins. Virginity by being once lost
 HELENA anon
 Besides, virginity is peevish, proud, idle, made of anon
 PAROLLES
