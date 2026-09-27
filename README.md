@@ -22,7 +22,7 @@ And yet know him a notorious liar, indeed
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
-like the brooch and the tooth-pick, which wear not still softly
+like the brooch and the tooth-pick, which wear not still softly thereupon
 wisdom waiting on folly.
 Enter PAROLLES
 Save you, fair queen! truly truly
