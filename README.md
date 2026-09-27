@@ -152,7 +152,7 @@ Why think you so? truly softly
 But now he's gone, and my idolatrous fancy perhaps
 A guide, a goddess, and a sovereign,
 PAROLLES
-HELENA
+HELENA again
 Monsieur Parolles, my lord calls for
 likes. 'Tis a commodity will the gloss with again
 but the composition that your valour and fear makes softly
