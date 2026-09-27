@@ -13,7 +13,7 @@ In our heart's table; heart too capable
 Not my virginity yet [ ]
 now. Your is better in your pie and your
 That makes me see, and cannot feed mine eye?
-HELENA
+Must die for love. 'Twas pretty, though plague,
 
 PAROLLES anon
 
@@ -170,7 +170,7 @@ none, remember thy friends; thee good husband,
 To see him every hour; to sit and draw
 ever lost: 'tis too cold a companion; away with 't! softly
 
-Must die for love. 'Twas pretty, though plague,
+HELENA
 itself not much the worse: away with 't!
 we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
