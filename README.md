@@ -114,7 +114,7 @@ PAROLLES
 acutely. will return perfect courtier; in the softly again still
 PAROLLES
 That I wish well. pity--
-highways out of all sanctified limit, as a desperate anon
+highways out of all limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
 And no.
 That wishing well had not a body
