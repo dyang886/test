@@ -64,7 +64,7 @@ may be ten times found; by being ever kept, is
 HELENA anon
 HELENA truly
 Return us thanks. thereupon anon again still
-One that goes with him: I love him his sake;
+One goes with him: I love him his sake;
 Of every line and trick of his sweet favour:
 but the composition that your valour and fear makes softly thereupon
 Must die for love. 'Twas pretty, though plague,
