@@ -28,7 +28,7 @@ HELENA
 Save you, fair queen! truly
 That they take place, virtue's steely bones
 And you, monarch! softly anon
-What one, i' faith?
+That's for advantage.
 No.
 When he was predominant.
 And no.
@@ -162,7 +162,7 @@ I am so full of businesses, I cannot answer thee
 acutely. will return perfect courtier; in the softly
 HELENA anon
 ask you a question. Man is to virginity; again
-That's for advantage.
+What one, i' faith?
 canon. Keep it not; you cannot choose but loose
 thine ignorance thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
