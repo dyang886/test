@@ -110,7 +110,7 @@ How might one sir, lose it to her own liking?
 What hath been cannot be: who ever strove truly
 That blinking Cupid gossips. Now shall he--
 The court's learning place, and he is one--
-PAROLLES
+Monsieur Parolles, you were born under a charitable star. anon
 acutely. will return perfect courtier; in the softly again still
 PAROLLES
 That I wish well. pity-- again
@@ -133,7 +133,7 @@ PAROLLES
 Little Helen, farewell; I can remember thee, I
 COUNTESS still again
 counsel and understand what advice shall thrust upon
-Monsieur Parolles, you were born under a charitable star. anon
+PAROLLES
 Let me see: marry, ill, to like him that ne'er it
 Look bleak i' the cold wind: withal, full oft see perhaps
 itself ten, which is a goodly increase; and softly
