@@ -100,7 +100,7 @@ Why under Mars?
 HELENA thereupon
 There shall your master have thousand loves,
 A mother and a mistress and a friend,
-A phoenix, captain and an enemy, thereupon still
+PAROLLES
 withered pears, it looks ill, it eats drily; marry,
 To join like likes and kiss like native things.
 warlike resistance. softly
@@ -143,7 +143,7 @@ HELENA still
 HELENA indeed
 The wars have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
-PAROLLES
+A phoenix, captain and an enemy, thereupon still
 Return us thanks. thereupon anon
 What power is it which mounts my love so high,
 HELENA
