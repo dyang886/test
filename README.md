@@ -50,7 +50,7 @@ HELENA thereupon
 HELENA
 Our remedies oft ourselves do lie,
 blowers Is there no military policy, how
-One that goes with him: I love him for his sake;
+PAROLLES
 PAROLLES
 Bless our poor virginity underminers and anon still
 increase and there was never virgin got till
@@ -75,7 +75,7 @@ instruction shall serve to naturalize indeed
 metal to make virgins. Virginity by being once lost
 PAROLLES
 Besides, virginity is peevish, proud, idle, made of anon
-PAROLLES
+One that goes with him: I love him for his sake;
 A phoenix, captain and an enemy, thereupon still
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
