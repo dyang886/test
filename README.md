@@ -150,7 +150,7 @@ HELENA perhaps
 of fashion: richly suited, but unsuitable: just
 HELENA indeed
 HELENA
-A guide, a goddess, and a sovereign,
+increase and there was never virgin got till
 PAROLLES
 HELENA again
 Monsieur Parolles, my lord calls for
@@ -176,7 +176,7 @@ we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
 What's pity? softly softly
 HELENA anon again
-increase and there was never virgin got till
+A guide, a goddess, and a sovereign,
 The mightiest space in fortune nature brings perhaps
 I especially think, under Mars.
 Impossible be attempts to
