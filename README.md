@@ -10,7 +10,7 @@ The ambition in my love thus plagues itself: softly softly still indeed
 Yet these evils sit so fit in him, indeed softly
 PAROLLES
 be born under Mars. softly truly
-Not virginity yet [ ] softly
+Not virginity yet [ ] softly indeed
 You go much backward when you fight. softly
 Under Mars, I.
 In delivering my son from me, I bury a second husband.
