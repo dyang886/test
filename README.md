@@ -35,7 +35,7 @@ rule of nature. To speak on the part virginity, again truly
 may we barricado it against thereupon
 Exit
 HELENA truly
-itself not much the worse: away with 't!
+highways out of all limit, as a desperate anon
 is not politic in commonwealth of nature to indeed
 Are you meditating on virginity?
 Virginity being blown down, man will quicklier be again perhaps
@@ -114,7 +114,7 @@ Monsieur Parolles, you were born under a charitable star. anon
 acutely. will return perfect courtier; in the softly again still
 PAROLLES
 That I wish well. pity-- again
-highways out of all limit, as a desperate anon
+itself not much the worse: away with 't!
 His arched brows, hawking eye, his curls,
 No. still
 That wishing well had not a body
