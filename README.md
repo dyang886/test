@@ -140,7 +140,7 @@ Keep him out. perhaps
 virgins blow men?
 Exit
 HELENA still
-HELENA indeed
+Why think you so? truly softly
 The wars have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
 A phoenix, captain and an enemy, thereupon still
@@ -148,7 +148,7 @@ Return us thanks. thereupon anon
 What power is it which mounts my love so high,
 HELENA perhaps
 of fashion: richly suited, but unsuitable: just
-Why think you so? truly softly
+HELENA indeed
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps
 A guide, a goddess, and a sovereign,
 PAROLLES
