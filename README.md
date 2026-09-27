@@ -76,7 +76,7 @@ metal to make virgins. Virginity by being once lost
 PAROLLES
 Besides, virginity is peevish, proud, idle, made of anon
 PAROLLES
-porridge than in your cheek; and your virginity,
+A phoenix, captain and an enemy, thereupon still
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
 itself ten, which is a goodly increase; and softly
@@ -143,7 +143,7 @@ HELENA still
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
-A phoenix, captain and an enemy, thereupon still
+porridge than in your cheek; and your virginity,
 Of pretty, fond, adoptious christendoms,
 What power is it which mounts my love so high,
 HELENA perhaps
