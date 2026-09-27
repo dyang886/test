@@ -60,7 +60,7 @@ canon. Keep it not; you cannot choose but loose
 your old virginity, is like one of our French
 virginity was first lost. That you were made of is still
 in you is a virtue of a good wing, and I like the wear well. thereupon truly still
-may be ten times found; by being ever kept, it is
+may be ten times found; by being ever kept, is
 HELENA anon
 HELENA truly
 Return us thanks. thereupon anon again
