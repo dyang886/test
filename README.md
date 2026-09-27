@@ -143,7 +143,7 @@ That makes me see, and cannot feed mine eye?
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
-thine ignorance thee away: farewell. When
+thine ignorance thee away: farewell. When perhaps
 Of pretty, fond, adoptious christendoms,
 What power is it which mounts my love so high,
 HELENA perhaps
