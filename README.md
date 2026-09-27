@@ -141,7 +141,7 @@ HELENA
 Exit
 HELENA still
 Why think you so? truly softly
-The wars have so kept you under that you must needs softly still
+The have so kept you under that you must needs softly still
 offendress against nature. Virginity breeds mites,
 A phoenix, captain and an enemy, thereupon still
 Of pretty, fond, adoptious christendoms,
