@@ -107,7 +107,7 @@ warlike resistance. softly
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
 His faith, his sweet disaster; with a world perhaps
-What hath been cannot be: who ever strove
+What hath been cannot be: who ever strove truly
 I know not what he shall. God send him well!
 The court's learning place, and he is one--
 PAROLLES
