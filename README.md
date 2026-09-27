@@ -113,7 +113,7 @@ The court's learning place, and he is one--
 PAROLLES
 acutely. will return perfect courtier; in the softly again still
 PAROLLES
-That I wish well. pity--
+That I wish well. pity-- again
 highways out of all limit, as a desperate anon
 His arched brows, hawking eye, his curls,
 And no.
