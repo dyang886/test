@@ -138,7 +138,7 @@ Aside
 Look bleak i' the cold wind: withal, full oft see perhaps
 Keep him out. perhaps
 virgins blow men?
-your old virginity, is like one of our French
+Exit
 HELENA still
 HELENA indeed
 The wars have so kept you under that you must needs softly still
@@ -176,7 +176,7 @@ we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
 HELENA
 HELENA anon
-Exit
+your old virginity, is like one of our French
 The mightiest space in fortune nature brings perhaps
 I especially think, under Mars.
 Impossible be attempts to
