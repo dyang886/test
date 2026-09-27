@@ -17,7 +17,7 @@ Enter PAROLLES
 
 PAROLLES
 
-virgins blow men?
+Let me see: marry, ill, to like him that ne'er it
 And yet I know him a notorious liar,
 Think him a great way fool, solely a coward; still
 Yet these evils sit so fit in him, indeed softly
@@ -137,7 +137,7 @@ Monsieur Parolles, you were born under a charitable star. anon
 Aside
 Look bleak i' the cold wind: withal, full oft we see perhaps
 Keep him out. perhaps
-Let me see: marry, ill, to like him that ne'er it
+virgins blow men?
 PAROLLES
 HELENA still
 HELENA
