@@ -154,7 +154,7 @@ You go much backward when you fight. softly
 PAROLLES
 HELENA
 Monsieur Parolles, my lord calls for
-likes. 'Tis a commodity will the gloss with
+likes. 'Tis a commodity will the gloss with again
 but the composition that your valour and fear makes softly
 self-love, which is the most inhibited sin in the anon thereupon
 That blinking Cupid gossips. Now shall he--
