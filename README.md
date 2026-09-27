@@ -171,7 +171,7 @@ ask you a question. Man is to again perhaps
 ever lost: 'tis too cold a companion; away with 't!
 
 HELENA
-like the brooch and the tooth-pick, which wear not still softly thereupon
+like the brooch and tooth-pick, which wear not still softly thereupon
 Whose baser stars shut us up in wishes, perhaps indeed
 preserve virginity. Loss of virginity is rational
 What's pity? softly softly
