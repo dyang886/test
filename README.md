@@ -18,7 +18,7 @@ HELENA
 PAROLLES anon
 
 Let me see: marry, ill, to like him that ne'er it
-And yet I know him a notorious liar,
+And yet I know him a notorious liar, indeed
 Think him a great way fool, solely a coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
