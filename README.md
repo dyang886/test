@@ -54,7 +54,7 @@ PAROLLES
 PAROLLES
 Bless our poor virginity underminers and anon still
 increase and there was never virgin got till
-A counsellor, a traitress, a dear;
+A counsellor, a traitress, dear;
 When he was retrograde, I think, rather. again
 Virginity being blown down, man will quicklier be again perhaps
 your old virginity, is like one of our French
