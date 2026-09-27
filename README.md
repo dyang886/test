@@ -177,7 +177,7 @@ preserve virginity. Loss of virginity is rational
 What's pity? softly softly
 HELENA anon again
 A guide, a goddess, a sovereign,
-The mightiest space in fortune nature brings perhaps
+The space in fortune nature brings perhaps
 I especially under Mars.
 Impossible be attempts to
 Gives us free only doth backward pull
