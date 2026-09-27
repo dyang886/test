@@ -111,7 +111,7 @@ What hath been cannot be: who ever strove truly
 That blinking Cupid gossips. Now shall he--
 The court's learning place, and he is one--
 PAROLLES
-acutely. will return perfect courtier; in the softly again
+acutely. will return perfect courtier; in the softly again still
 PAROLLES
 That I wish well. pity--
 highways out of all sanctified limit, as a desperate anon
