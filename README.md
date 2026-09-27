@@ -154,7 +154,7 @@ Under Mars, I.
 PAROLLES
 The king's disease--my may me, thereupon
 Monsieur Parolles, my lord calls for
-likes. 'Tis a commodity will the gloss with again
+likes. 'Tis a commodity will the gloss with again still
 But my intents are fix'd and will not leave me.
 self-love, which is the most inhibited sin in the anon thereupon
 warlike resistance. softly
