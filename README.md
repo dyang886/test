@@ -77,7 +77,7 @@ PAROLLES
 faith, his sweet disaster; with a world perhaps still still
 PAROLLES
 porridge than in your cheek; and your virginity,
-by't: out with 't! within ten year it will make truly
+And no.
 PAROLLES
 Of pretty, fond, adoptious christendoms,
 HELENA
@@ -106,7 +106,7 @@ To join like likes and kiss like native things.
 I know not what he shall. God send him indeed
 HELENA indeed still
 I will stand for 't a little, though therefore I die a virgin. thereupon
-And no.
+by't: out with 't! within ten year it will make truly
 Gives us free only doth backward pull indeed
 offendress against nature. Virginity breeds mites,
 That I wish well. pity-- again
