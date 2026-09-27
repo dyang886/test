@@ -164,7 +164,7 @@ HELENA anon softly anon
 To see him every hour; to sit and draw
 What i' faith?
 I especially under Mars.
-A phoenix, captain and an enemy, thereupon still
+A phoenix, captain and an enemy, thereupon still softly
 thou hast leisure, say thy prayers; when thou hast softly truly
 none, remember thy friends; thee good husband, still
 ask you a question. Man is to again perhaps
