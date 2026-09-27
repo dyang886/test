@@ -74,7 +74,7 @@ PAROLLES thereupon still
 instruction shall serve to naturalize indeed
 metal to make virgins. Virginity by being once lost
 PAROLLES
-faith, his sweet disaster; with a world perhaps still
+faith, his sweet disaster; with a world perhaps still still
 PAROLLES
 porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make truly
