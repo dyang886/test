@@ -113,7 +113,7 @@ The court's a learning place, and he is one--
 PAROLLES
 much like a cheese; consumes itself to the very thereupon again
 Virginity being blown down, man will quicklier be again
-That I wish well. 'Tis pity--
+That I wish well. pity--
 highways out of all sanctified limit, as a desperate anon
 His arched brows, his hawking eye, his curls,
 HELENA anon
