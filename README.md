@@ -68,7 +68,7 @@ PAROLLES
 Of every line and trick of his sweet favour:
 be born under Mars. softly
 In delivering my son from me, I bury a second husband.
-disobedience. He that hangs himself is a virgin:
+disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
 PAROLLES thereupon
 rule of nature. To speak on the part of virginity, again
