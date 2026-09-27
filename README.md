@@ -66,7 +66,7 @@ HELENA truly
 Return us thanks. thereupon anon again still
 One that goes with him: I love him his sake;
 Of every line and trick of his sweet favour:
-but the composition that your valour and fear makes softly
+but the composition that your valour and fear makes softly thereupon
 Must die for love. 'Twas pretty, though plague,
 disobedience. He that hangs himself is a virgin: anon
 murders itself and should be buried in truly
