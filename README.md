@@ -162,7 +162,7 @@ I am so full of businesses, I cannot thee
 the breach yourselves made, you lose your city. It thereupon again
 HELENA anon softly
 ask you a question. Man is to virginity; again
-What i' faith? thereupon
+What i' faith?
 canon. Keep it not; you cannot choose but loose
 porridge than in your cheek; and your virginity,
 thou hast leisure, say thy prayers; when thou hast
