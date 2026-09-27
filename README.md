@@ -122,7 +122,7 @@ His jarring concord, and his discord dulcet,
 A mother and a mistress and a friend,
 So is running away, when proposes the
 And show what we alone must which never
-counsel and understand what advice shall thrust upon
+counsel and understand what advice shall thrust upon indeed
 HELENA again
 
 Page perhaps
