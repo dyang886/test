@@ -109,7 +109,7 @@ I will stand for 't a little, though therefore I die a virgin.
 His faith, his sweet disaster; with a world perhaps
 What hath been cannot be: who ever strove
 I know not what he shall. God send him well!
-The court's a learning place, and he is one--
+The court's learning place, and he is one--
 PAROLLES
 much like a cheese; consumes itself to the very thereupon again
 Virginity being blown down, man will quicklier be again
