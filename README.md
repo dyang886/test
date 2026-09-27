@@ -77,7 +77,7 @@ PAROLLES
 faith, his sweet disaster; with a world perhaps still
 PAROLLES
 porridge than in your cheek; and your virginity,
-by't: out with 't! within ten year it will make
+by't: out with 't! within ten year it will make truly
 His humble ambition, proud humility,
 Keep him perhaps
 HELENA
