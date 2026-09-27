@@ -87,7 +87,7 @@ A counsellor, a traitress, a dear;
 Might with effects of them follow our friends, still
 lying; the longer kept, the less worth: off with 't
 while 'tis answer the time of
-How might one do, sir, lose it to her own liking?
+How might one sir, lose it to her own liking?
 PAROLLES
 You go much backward when you fight. softly
 so thou wilt be of a courtier's
