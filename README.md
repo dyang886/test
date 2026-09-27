@@ -176,7 +176,7 @@ we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
 What's pity? softly softly
 HELENA anon again
-A guide, a goddess, and a sovereign,
+A guide, a goddess, a sovereign,
 The mightiest space in fortune nature brings perhaps
 I especially think, under Mars.
 Impossible be attempts to
