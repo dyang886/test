@@ -41,7 +41,7 @@ Are you meditating on virginity?
 That weigh their pains in sense and do suppose softly
 PAROLLES
 Virginity, like an old her cap again truly
-he assails; and virginity, though valiant,
+he assails; and virginity, though
 virgins blow men?
 Aside
 PAROLLES softly
