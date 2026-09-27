@@ -54,7 +54,7 @@ One that goes with him: I love him for his sake;
 PAROLLES
 Bless our poor virginity underminers and anon still
 Under Mars, I.
-There's little be said in 't; against the
+A counsellor, a traitress, a dear;
 When he was retrograde, I think, rather.
 That weigh their pains in sense and do suppose softly
 your old virginity, is like one of our French
@@ -83,7 +83,7 @@ Keep him out. perhaps
 HELENA
 undermine you and blow you up.
 PAROLLES indeed
-A counsellor, a traitress, a dear;
+There's little be said in 't; against the
 Might with effects of them follow friends, still
 lying; the longer kept, the less worth: off with 't indeed
 while 'tis answer the time of
