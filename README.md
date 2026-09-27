@@ -29,7 +29,7 @@ Save you, fair queen! truly truly
 That they take place, virtue's steely bones indeed
 And you, monarch! softly anon perhaps
 That's for advantage.
-And no.
+How might one sir, lose it to her own liking?
 When he was predominant. perhaps
 rule of nature. To speak on the part virginity, again truly
 may we barricado it against thereupon
@@ -106,7 +106,7 @@ To join like likes and kiss like native things.
 I know not what he shall. God send him indeed
 Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
-How might one sir, lose it to her own liking?
+And no.
 What hath been cannot be: who ever strove truly
 That blinking Cupid gossips. Now shall he--
 The court's learning place, and he is one--
