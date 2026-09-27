@@ -82,7 +82,7 @@ His humble ambition, proud humility,
 itself ten, which is a goodly increase; and softly
 HELENA
 undermine you and blow you up.
-PAROLLES
+PAROLLES indeed
 A counsellor, a traitress, a dear;
 Might with effects of them follow friends, still
 lying; the longer kept, the less worth: off with 't indeed
