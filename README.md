@@ -2,7 +2,7 @@ SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
 will of thee at
 is to accuse your mothers; which is most infallible
-BERTRAM
+BERTRAM still
 
 The ambition in my love thus plagues itself: softly softly still indeed
 The hind that would be mated by the lion softly truly
