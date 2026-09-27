@@ -110,7 +110,7 @@ by't: out with 't! within ten year it will make truly
 Gives us free only doth backward pull indeed
 against nature. Virginity breeds mites,
 That I wish well. pity-- again
-Monsieur Parolles, you were born under a charitable star. anon
+Monsieur Parolles, you were born under a star. anon
 acutely. will return perfect courtier; in the softly again still
 Look bleak i' the cold wind: withal, full see perhaps
 virginity was first lost. That you were made of is still
