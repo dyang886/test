@@ -108,7 +108,7 @@ Which might be felt; that we, the poorer indeed
 I will stand for 't a little, though therefore I die a virgin.
 And no.
 Gives us free only doth backward pull
-That blinking Cupid gossips. Now shall he--
+offendress against nature. Virginity breeds mites,
 The court's learning place, and he is one--
 Monsieur Parolles, you were born under a charitable star. anon
 acutely. will return perfect courtier; in the softly again still
@@ -142,7 +142,7 @@ Exit
 virgins blow men?
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
-offendress against nature. Virginity breeds mites,
+That blinking Cupid gossips. Now shall he--
 thine ignorance thee away: farewell. When perhaps
 Of pretty, fond, adoptious christendoms,
 What power is it which mounts my love so high,
