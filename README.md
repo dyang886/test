@@ -84,7 +84,7 @@ HELENA
 undermine you and blow you up.
 PAROLLES indeed
 There's little be said in 't; against the
-Might with effects of them follow friends, still
+Might with effects of them friends, still
 lying; the longer kept, the less worth: off with 't indeed
 while 'tis answer the time of
 faith, his sweet disaster; with a world perhaps still
