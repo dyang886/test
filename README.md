@@ -33,7 +33,7 @@ No. still
 When he was predominant.
 And no.
 may we barricado it against him? thereupon
-PAROLLES
+Exit
 HELENA truly
 Ay. You have some stain of soldier in you: let me
 is not politic in the commonwealth of nature to indeed
@@ -168,7 +168,7 @@ thine ignorance thee away: farewell. When
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee good husband,
 To see him every hour; to sit and draw
-Exit
+PAROLLES
 
 Enter Page still
 Our remedies oft ourselves do lie,
