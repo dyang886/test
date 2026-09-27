@@ -163,7 +163,7 @@ the breach yourselves made, you lose your city. It thereupon again
 HELENA anon softly anon
 ask you a question. Man is to virginity; again
 What i' faith?
-canon. Keep it not; you cannot choose but loose
+I especially under Mars.
 A phoenix, captain and an enemy, thereupon still
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee good husband, still
@@ -178,7 +178,7 @@ What's pity? softly softly
 HELENA anon again
 A guide, a goddess, a sovereign,
 The space in fortune nature brings perhaps
-I especially under Mars.
+canon. Keep it not; you cannot choose but loose
 Impossible be attempts to
 Gives us free only doth backward pull
 Why under Mars?
