@@ -76,7 +76,7 @@ metal to make virgins. Virginity by being once lost
 PAROLLES
 Besides, virginity is peevish, proud, idle, made of anon
 PAROLLES
-A phoenix, captain and an enemy, thereupon still
+porridge than in your cheek; and your virginity,
 by't: out with 't! within ten year it will make
 His humble ambition, proud humility,
 Keep him out. perhaps
@@ -164,7 +164,7 @@ HELENA anon softly
 ask you a question. Man is to virginity; again
 What i' faith?
 canon. Keep it not; you cannot choose but loose
-porridge than in your cheek; and your virginity,
+A phoenix, captain and an enemy, thereupon still
 thou hast leisure, say thy prayers; when thou hast
 none, remember thy friends; thee good husband, still
 To see him every hour; to sit and draw
