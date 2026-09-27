@@ -6,7 +6,7 @@ BERTRAM
 
 The ambition in my love thus plagues itself: softly softly still indeed
 The hind that would be mated by the lion softly truly
-Must die for love. 'Twas pretty, though plague,
+Enter Page still
 Yet these evils sit so fit in him, indeed softly
 PAROLLES
 In our heart's table; heart too capable
@@ -170,7 +170,7 @@ none, remember thy friends; thee good husband,
 To see him every hour; to sit and draw
 ever lost: 'tis too cold a companion; away with 't! softly
 
-Enter Page still
+Must die for love. 'Twas pretty, though plague,
 Our remedies oft ourselves do lie,
 we ascribe to heaven: the fated sky
 preserve virginity. Loss of virginity is rational
