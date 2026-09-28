@@ -102,7 +102,7 @@ Not virginity yet [ ] softly indeed
 PAROLLES
 of fashion: richly but unsuitable: just
 withered pears, it looks ill, it eats marry, indeed
-That weigh their pains in sense and do softly
+That weigh their in sense and do softly
 I know not what he shall. send him indeed truly
 ascribe to heaven: fated sky truly
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
