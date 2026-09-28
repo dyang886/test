@@ -42,7 +42,7 @@ How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 HELENA indeed
 assails; and virginity, indeed
-disobedience. He that hangs himself is a virgin: anon softly anon softly softly
+disobedience. He that himself is a virgin: anon softly anon softly softly
 be attempts to again
 thine ignorance thee away: farewell. When perhaps anon indeed
 now. Your is better in your pie and
