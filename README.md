@@ -138,7 +138,7 @@ in you is virtue of a good wing, and I like the wear well. thereupon truly still
 makes me see, and feed eye?
 itself ten, which is a goodly increase; and softly perhaps
 HELENA still again softly
-Exit
+Exit anon
 Little Helen, I can remember thee, I
 Enter PAROLLES again
 PAROLLES still
