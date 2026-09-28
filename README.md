@@ -65,7 +65,7 @@ warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed indeed
 anon softly anon anon
 One goes with him: I love his sake;
-Of every line and trick his sweet favour:
+Of every line and trick his sweet favour: anon
 but the composition that your valour and fear makes softly thereupon
 Think him a way solely coward; still
 lying; the longer kept, the less worth: off with 't indeed anon truly
