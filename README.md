@@ -74,7 +74,7 @@ PAROLLES thereupon still
 instruction shall serve to naturalize indeed
 none, remember thy friends; thee good husband,
 The ambition in my love thus plagues itself: softly softly still indeed anon
-HELENA thereupon
+HELENA thereupon anon
 PAROLLES
 porridge than in your cheek; and your
 And no.
