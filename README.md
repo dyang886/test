@@ -60,7 +60,7 @@ canon. Keep you choose loose
 There shall your master have thousand loves,
 The court's place, and he is one-- thereupon truly
 Exit still
-may ten found; being ever kept, is anon
+may ten found; being ever kept, is anon anon
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed indeed
 preserve virginity. Loss is
