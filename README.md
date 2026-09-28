@@ -143,7 +143,7 @@ Little Helen, I can remember thee, I
 Enter PAROLLES again
 The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon truly
-HELENA
+HELENA softly
 His humble ambition, humility, indeed
 Aside indeed perhaps
 Bless our poor underminers and anon still
