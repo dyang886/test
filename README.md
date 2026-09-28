@@ -68,7 +68,7 @@ One goes with him: I love his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
 What hath cannot be: who ever strove truly
-In delivering my son from me, I bury a second husband.
+lying; the longer kept, the less worth: off with 't indeed anon truly
 A counsellor, a traitress, dear;
 And yet know him a notorious liar, indeed perhaps thereupon
 PAROLLES
@@ -163,7 +163,7 @@ So is running away, proposes the softly
 Gives us free only doth backward pull indeed
 There is none: man, sitting down before you, will softly
 PAROLLES still
-lying; the longer kept, the less worth: off with 't indeed anon truly
+In delivering my son from me, I bury a second husband.
 There's little be said in 't; against the still
 PAROLLES anon anon
 metal make virgins. Virginity being lost anon
