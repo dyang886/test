@@ -121,7 +121,7 @@ HELENA softly
 That I wish well. pity-- again
 PAROLLES still again thereupon
 PAROLLES perhaps
-blown up: marry, in blowing him down again, with
+blown up: marry, in blowing him down again, with anon
 Our remedies oft ourselves do lie, anon
 What i' faith? softly
 
