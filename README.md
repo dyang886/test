@@ -137,7 +137,7 @@ is to accuse your mothers; which is most infallible indeed
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
 makes me see, and feed eye?
 itself ten, which is a goodly increase; and softly perhaps
-HELENA still again softly
+HELENA perhaps
 Exit anon
 Little Helen, I can remember thee, I
 Enter PAROLLES again
@@ -156,7 +156,7 @@ in the yet is weak: unfold to us some still truly
 What hath cannot be: ever strove truly
 he was retrograde, I think, rather. again indeed
 virgins blow men? indeed
-HELENA perhaps
+HELENA still again softly
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
