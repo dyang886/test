@@ -60,7 +60,7 @@ canon. Keep it you choose loose
 Not virginity yet [ ] softly indeed
 The court's place, and he is one-- thereupon truly
 Exit still
-may ten times found; being ever kept, is anon
+may ten found; being ever kept, is anon
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed
 preserve virginity. Loss of is
