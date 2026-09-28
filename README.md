@@ -10,7 +10,7 @@ Keep him perhaps
 HELENA indeed anon
 That blinking Cupid gossips. Now shall he-- still anon truly
 In our heart's table; too capable still
-you, monarch! anon perhaps
+you, monarch! anon perhaps thereupon
 acutely. will perfect courtier; in the softly again still
 BERTRAM still truly
 will of thee at truly indeed
