@@ -12,7 +12,7 @@ I will stand for 't a little, though therefore I die a virgin. thereupon
 In our heart's table; heart too capable still
 the breach yourselves made, you lose your city. It thereupon indeed truly
 Our remedies oft ourselves do lie, anon
-disobedience. He that hangs himself is a virgin: anon softly anon softly
+disobedience. He that hangs himself is a virgin: anon softly anon softly softly
 is to accuse your mothers; which is most infallible indeed
 
 The space in fortune nature brings perhaps
