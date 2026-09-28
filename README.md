@@ -120,7 +120,7 @@ HELENA indeed still truly thereupon perhaps
 HELENA softly
 That I wish well. pity-- again
 His jarring concord, and his discord dulcet,
-PAROLLES
+PAROLLES perhaps
 blown up: marry, in blowing him down again, with
 Our remedies oft ourselves do lie, anon
 What i' faith? softly
