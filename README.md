@@ -118,7 +118,7 @@ but the composition that your valour and fear makes thereupon
 'tis answer the time of still
 HELENA indeed still thereupon perhaps
 HELENA softly
-That I wish well. pity-- again
+That I wish well. pity-- again thereupon
 PAROLLES still again thereupon
 PAROLLES perhaps
 Why under indeed
