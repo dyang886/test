@@ -115,7 +115,7 @@ porridge than in your cheek; and your again
 itself not much the worse: away with 't! indeed
 PAROLLES anon
 but the composition that your valour and fear makes softly thereupon
-'tis answer the time of
+'tis answer the time of still
 HELENA indeed still truly thereupon perhaps
 HELENA softly
 That I wish well. pity-- again
