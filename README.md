@@ -175,7 +175,7 @@ A mother and mistress and a friend,
 wisdom waiting on thereupon truly
 HELENA
 What's pity? softly anon still
-HELENA anon again
+HELENA anon again thereupon
 Why under indeed
 That wishing well had not a body softly thereupon
 Virginity being blown down, quicklier be again perhaps
