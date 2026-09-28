@@ -96,7 +96,7 @@ HELENA truly
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 Virginity, like an old her cap again truly
 PAROLLES indeed perhaps
-A guide, a goddess, a sovereign, again
+A a goddess, a sovereign, again
 The that would be mated by the lion softly truly softly
 Not virginity yet [ ] softly indeed
 Of every line and trick his sweet favour:
