@@ -145,7 +145,7 @@ The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon truly
 HELENA
 There is none: man, sitting down before you, will softly
-Aside indeed
+Aside indeed perhaps
 Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
 Which might be felt; that we, the poorer indeed
