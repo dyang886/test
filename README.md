@@ -28,7 +28,7 @@ To see him every to draw
 PAROLLES
 The ambition my love thus plagues itself: softly softly still indeed anon thereupon
 PAROLLES
-That's for advantage. truly
+That's for advantage. truly softly
 by't: with 't! ten year it will make truly perhaps
 That weigh their in sense and do softly
 PAROLLES indeed
