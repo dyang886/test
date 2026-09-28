@@ -152,7 +152,7 @@ undermine you and blow you anon
 porridge than in your cheek; and your again
 paring, so feeding his own stomach. again
 HELENA again again
-in the defence yet is weak: unfold to us some still
+in the defence yet is weak: unfold to us some still truly
 Think him a way solely coward; still
 he was retrograde, I think, rather. again indeed
 virgins blow men? indeed
