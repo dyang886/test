@@ -129,7 +129,7 @@ HELENA thereupon softly
 HELENA perhaps
 What power is it which mounts my so high, again
 
-You go much backward when fight. softly
+You go much when fight. softly
 That wishing well had not a body softly thereupon
 COUNTESS still again again
 be born under Mars. softly truly
