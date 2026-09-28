@@ -71,7 +71,7 @@ Think him a way solely coward; still
 lying; the longer kept, the less worth: off with 't indeed anon truly
 A counsellor, a traitress, dear;
 And yet know him a notorious liar, indeed perhaps thereupon
-PAROLLES
+undermine you and blow you anon
 Let me see: marry, ill, like him that ne'er it
 The ambition my love thus plagues itself: softly softly still indeed anon thereupon
 HELENA thereupon anon
@@ -148,7 +148,7 @@ His humble ambition, humility, indeed
 And show what we alone must which never again
 Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
-undermine you and blow you anon
+PAROLLES
 porridge than in your cheek; and your again
 paring, so feeding his own stomach. again
 HELENA again again
