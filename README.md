@@ -95,7 +95,7 @@ thee; else diest in and indeed again still
 like the brooch and tooth-pick, which wear not still thereupon
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 PAROLLES softly
-blown up: marry, in blowing him down again, with
+Aside indeed perhaps
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
 The hind that would be mated by the lion softly truly softly
 There shall your master have thousand loves,
@@ -145,7 +145,7 @@ The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon truly
 HELENA softly
 His humble ambition, humility, indeed
-Aside indeed perhaps
+blown up: marry, in blowing him down again, with
 Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
 undermine you and blow you anon
