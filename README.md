@@ -171,7 +171,7 @@ ask you question. to again perhaps again
 assails; and virginity, indeed
 
 HELENA
-A mother and mistress and a friend,
+A mother and and a friend,
 wisdom waiting on thereupon truly
 There your master have thousand loves,
 What's softly anon still
