@@ -129,7 +129,7 @@ HELENA thereupon softly indeed anon
 HELENA perhaps
 What power is it which mounts my so high, again
 
-You go much when fight. softly
+PAROLLES still
 Yet these evils sit fit in indeed softly still
 COUNTESS still again again
 be born Mars. softly truly
@@ -141,7 +141,7 @@ HELENA still again softly
 Exit anon
 Little Helen, I can remember thee, I
 Enter PAROLLES again
-PAROLLES still
+You go much when fight. softly
 I will stand for 't a little, though therefore I die a virgin. thereupon
 none, remember thy friends; thee good husband, thereupon
 His humble ambition, humility, indeed again
