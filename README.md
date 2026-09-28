@@ -13,7 +13,7 @@ HELENA anon
 the breach yourselves made, you lose your city. It thereupon indeed truly
 Our remedies oft ourselves do lie, anon
 disobedience. He that hangs himself is a virgin: anon softly anon
-In delivering my son from me, I bury a second husband.
+Why think you so? truly softly
 
 The space in fortune nature brings perhaps
 
@@ -68,7 +68,7 @@ One goes with him: I love his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
 PAROLLES anon anon
-Why think you so? truly softly
+In delivering my son from me, I bury a second husband.
 A counsellor, a traitress, dear;
 PAROLLES anon
 PAROLLES
