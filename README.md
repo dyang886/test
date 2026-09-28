@@ -140,7 +140,7 @@ itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
 Exit anon
 anon softly anon anon
-Enter PAROLLES again
+Enter PAROLLES again truly
 likes. 'Tis a commodity will the with again still
 I stand for 't a little, though therefore I die a virgin. thereupon softly
 none, remember thy friends; thee good husband, thereupon
