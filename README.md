@@ -60,7 +60,7 @@ HELENA
 in the yet is weak: unfold to us some still truly
 I know not what he shall. send him indeed truly
 What power is it which my so high, again
-may ten found; being ever kept, is anon perhaps
+PAROLLES again
 warlike resistance. softly
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed softly
 HELENA anon again thereupon
@@ -148,7 +148,7 @@ His arched brows, hawking eye, his curls, indeed softly
 And show what we alone must which never again
 Bless our poor underminers and anon still
 and use him he thee; so, farewell. anon
-PAROLLES again
+may ten found; being ever kept, is anon perhaps
 HELENA thereupon anon
 so feeding his own stomach. again
 HELENA again again perhaps
