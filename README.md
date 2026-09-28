@@ -117,7 +117,7 @@ virginity was first lost. That you were made of is still
 wisdom waiting on
 The king's disease--my may me, thereupon
 No. still
-That wishing well had not a body anon softly
+That wishing well had not a body anon softly thereupon
 like the brooch and tooth-pick, which wear not still softly thereupon
 A mother and a mistress and a friend,
 PAROLLES
