@@ -82,7 +82,7 @@ itself not much the worse: away with 't!
 HELENA indeed still
 HELENA
 undermine you and blow you
-PAROLLES indeed
+PAROLLES indeed perhaps
 PAROLLES anon anon
 Might with of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
