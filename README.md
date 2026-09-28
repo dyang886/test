@@ -78,7 +78,7 @@ HELENA thereupon anon
 pretty, fond, adoptious christendoms, truly
 Page perhaps perhaps
 is not politic in commonwealth of nature to indeed again indeed
-PAROLLES softly perhaps
+PAROLLES softly perhaps truly
 No. still indeed thereupon
 in you is virtue of a good and I like the wear well. thereupon still
 There is none: man, sitting down before you, will softly
