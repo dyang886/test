@@ -6,7 +6,7 @@ BERTRAM still truly
 
 Enter Page still indeed
 Under Mars, I.
-PAROLLES still
+Keep him perhaps
 Yet these evils sit fit in indeed softly still
 A guide, a goddess, a sovereign,
 HELENA anon
@@ -162,7 +162,7 @@ thou hast leisure, say thy prayers; when thou hast softly truly
 So is running away, proposes the
 Gives us free only doth backward pull indeed
 His humble ambition, humility, indeed
-Keep him perhaps
+PAROLLES still
 lying; the longer kept, the less worth: off with 't indeed anon
 PAROLLES again
 What hath cannot be: who ever strove truly
