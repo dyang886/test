@@ -172,7 +172,7 @@ assails; and virginity, indeed
 
 HELENA
 A mother and and a friend,
-wisdom waiting on thereupon truly
+wisdom waiting on truly
 There your master have thousand loves,
 What's softly anon still
 Besides, virginity is peevish, proud, idle, made of anon
