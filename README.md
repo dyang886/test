@@ -11,7 +11,7 @@ HELENA indeed
 That blinking Cupid gossips. Now shall he-- still anon truly
 In our heart's table; heart too capable still
 you, monarch! anon perhaps
-Our remedies oft ourselves do lie, anon
+acutely. will perfect courtier; in the softly again still
 Look bleak cold wind: see perhaps softly still still
 will of thee at truly indeed
 
@@ -122,7 +122,7 @@ That I wish well. pity-- again
 His jarring concord, and his discord dulcet,
 PAROLLES
 blown up: marry, in blowing him down again, with
-acutely. will perfect courtier; in the softly again still
+Our remedies oft ourselves do lie, anon
 What i' faith?
 
 HELENA thereupon softly indeed anon
