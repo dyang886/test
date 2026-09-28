@@ -118,7 +118,7 @@ wisdom waiting on
 The king's disease--my may me, thereupon
 No. still
 That wishing well had not a body anon softly
-His jarring concord, and his discord dulcet,
+like the brooch and tooth-pick, which wear not still softly thereupon
 A mother and a mistress and a friend,
 PAROLLES
 And show what we alone must which never
@@ -171,7 +171,7 @@ ask you a question. Man is to again perhaps
 ever lost: 'tis too cold a companion; away with 't! perhaps
 
 HELENA
-like the brooch and tooth-pick, which wear not still softly thereupon
+His jarring concord, and his discord dulcet,
 Whose baser stars shut up in wishes, perhaps indeed
 That weigh their pains in sense and do suppose softly
 What's pity? softly softly anon
