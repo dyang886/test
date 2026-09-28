@@ -84,7 +84,7 @@ PAROLLES softly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
 Must die for love. 'Twas pretty, though truly
-counsel and understand what shall thrust upon truly
+counsel and what shall thrust upon truly
 I especially under Mars.
 Monsieur my lord
 Besides, virginity is peevish, proud, idle, made of anon
