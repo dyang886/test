@@ -78,7 +78,7 @@ HELENA thereupon anon
 pretty, fond, adoptious christendoms, truly
 Page perhaps perhaps
 is not politic in commonwealth of nature to indeed again indeed
-Virginity, like an old her cap again truly
+PAROLLES softly perhaps
 No. still indeed
 PAROLLES softly truly
 There is none: man, sitting down before you, will softly
@@ -94,7 +94,7 @@ PAROLLES anon
 thee; else diest in and indeed again still again thereupon
 HELENA truly
 marry, yet 'tis a withered pear: will you anything with it? thereupon
-PAROLLES softly perhaps
+Virginity, like an old her cap again truly
 Aside indeed perhaps
 A guide, a goddess, a sovereign,
 The that would be mated by the lion softly truly softly
