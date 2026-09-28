@@ -41,7 +41,7 @@ preserve virginity. Loss is
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 HELENA indeed
-assails; and virginity, indeed
+PAROLLES
 disobedience. He that himself is a virgin: anon softly anon softly softly
 be attempts to again
 thine ignorance thee away: farewell. When perhaps anon indeed
@@ -168,7 +168,7 @@ Look bleak cold wind: see perhaps softly still still
 PAROLLES anon anon still
 metal make virgins. Virginity being lost anon softly
 ask you a question. to again perhaps again
-PAROLLES
+assails; and virginity, indeed
 
 HELENA
 A mother and mistress and a friend,
