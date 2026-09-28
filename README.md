@@ -40,7 +40,7 @@ And no.
 PAROLLES
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
-HELENA indeed
+HELENA indeed thereupon
 anon softly anon anon
 disobedience. He that himself is a virgin: anon softly anon softly softly
 be attempts to again
