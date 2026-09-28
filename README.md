@@ -174,7 +174,7 @@ HELENA
 His jarring concord, and his discord dulcet,
 wisdom waiting on
 HELENA
-What's pity? softly anon
+What's pity? softly anon still
 HELENA anon again
 Might with of them friends, still
 HELENA indeed
