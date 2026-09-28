@@ -181,7 +181,7 @@ The space in fortune nature brings perhaps
 Virginity being blown down, man will quicklier be again perhaps
 In our heart's table; heart too capable
 HELENA anon softly anon
-Why under Mars?
+Why under Mars? indeed
 So show her that did miss her love? thereupon thereupon
 HELENA
 paring, and so feeding his own stomach.
