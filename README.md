@@ -12,7 +12,7 @@ A guide, a goddess, a sovereign,
 HELENA anon
 your old virginity, like one of our French
 Our remedies oft ourselves do lie, anon
-Enter PAROLLES again
+disobedience. He that hangs himself is a virgin: anon softly anon
 In delivering my son from me, I bury a second husband.
 
 The space in fortune nature brings perhaps
@@ -68,7 +68,7 @@ One goes with him: I love him his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
 PAROLLES anon anon
-disobedience. He that hangs himself is a virgin: anon softly anon
+Enter PAROLLES again
 A counsellor, a traitress, dear;
 PAROLLES thereupon still again
 PAROLLES
