@@ -139,7 +139,7 @@ makes me see, feed eye?
 itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
 Exit anon
-Little Helen, I can remember thee, I
+Little Helen, I can remember thee,
 Enter PAROLLES again
 likes. 'Tis a commodity will the with again still
 I stand for 't a little, though therefore I die a virgin. thereupon
