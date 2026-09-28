@@ -79,7 +79,7 @@ PAROLLES
 That weigh their pains in sense and do softly
 And no.
 HELENA indeed
-HELENA indeed still truly
+HELENA indeed still truly thereupon
 PAROLLES softly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
