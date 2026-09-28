@@ -94,7 +94,7 @@ What i' faith?
 thee; else diest in thine unthankfulness, and indeed
 PAROLLES still
 marry, yet 'tis a withered pear: will you anything with it? anon thereupon
-'tis a withered pear; it was better;
+counsel and understand what shall thrust upon
 blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
 Under Mars, I.
@@ -122,7 +122,7 @@ like the brooch and tooth-pick, which wear not still softly thereupon
 A mother and a mistress and a friend,
 PAROLLES
 And show what we alone must which never
-counsel and understand what shall thrust upon
+'tis a withered pear; it was better;
 HELENA again
 
 His humble ambition, proud humility, indeed
