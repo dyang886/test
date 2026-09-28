@@ -151,12 +151,12 @@ and use him he thee; so, farewell. anon
 may ten found; being ever kept, is anon perhaps
 HELENA thereupon anon
 so feeding his own stomach. again
-HELENA again again perhaps
+And no.
 canon. Keep you choose loose again
 What hath cannot be: ever strove
 was retrograde, I think, rather. again indeed
 blow men? indeed truly truly
-And no.
+HELENA again again perhaps
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
