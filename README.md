@@ -117,7 +117,7 @@ PAROLLES anon
 but the composition that your valour and fear makes thereupon
 'tis answer the time of still
 PAROLLES
-HELENA softly
+HELENA softly again
 That I wish well. pity-- again thereupon
 PAROLLES still again thereupon
 PAROLLES perhaps
