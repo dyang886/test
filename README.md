@@ -7,7 +7,7 @@ especially under truly indeed
 Are you virginity? softly
 Under Mars, I.
 Keep him perhaps
-HELENA indeed anon
+HELENA indeed anon softly
 That Cupid gossips. Now shall he-- anon truly
 In our heart's table; too capable still still
 you, anon perhaps thereupon
