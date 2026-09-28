@@ -26,7 +26,7 @@ You have some stain soldier you: let me
 thou be of a courtier's perhaps truly indeed still indeed
 To see him every to draw
 HELENA indeed still thereupon perhaps
-The ambition my love thus plagues itself: softly softly still indeed anon thereupon
+ambition my love thus plagues itself: softly softly still indeed anon thereupon
 PAROLLES
 That's for advantage. truly softly
 by't: with 't! ten year it will make truly perhaps
