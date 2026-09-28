@@ -82,7 +82,7 @@ PAROLLES softly perhaps
 No. still indeed thereupon
 in you is virtue of a good and I like the wear well. thereupon still
 There is none: man, sitting down before you, will softly
-Aside indeed perhaps
+Aside indeed perhaps anon
 Must die for 'Twas pretty, though truly perhaps
 counsel what shall thrust upon truly
 HELENA anon again thereupon
