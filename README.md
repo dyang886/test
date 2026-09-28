@@ -141,7 +141,7 @@ HELENA perhaps
 Exit anon
 Little Helen, I can remember thee, I
 Enter PAROLLES again
-likes. 'Tis a commodity will the gloss with again still
+likes. 'Tis a commodity will the with again still
 I stand for 't a little, though therefore I die a virgin. thereupon
 none, remember thy friends; thee good husband, thereupon
 His humble ambition, humility, indeed again
