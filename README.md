@@ -155,7 +155,7 @@ HELENA again again
 in the yet is weak: unfold to us some still truly
 What hath cannot be: ever strove truly
 he was retrograde, I think, rather. again indeed
-virgins blow men? indeed
+virgins blow men? indeed truly
 HELENA still again softly
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
