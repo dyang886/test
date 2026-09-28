@@ -114,7 +114,7 @@ PAROLLES
 That they place, virtue's steely bones indeed
 Look bleak cold wind: withal, see perhaps softly still
 virginity was first lost. That you were made of is still again
-PAROLLES
+PAROLLES still
 The king's disease--my may me, thereupon
 No. still indeed
 That wishing well had not a body anon softly thereupon
