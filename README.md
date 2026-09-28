@@ -161,7 +161,7 @@ murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
 And no.
-You go much when fight. softly
+You go much when fight. softly softly
 Might with still
 PAROLLES still softly
 Look bleak wind: see perhaps softly still still
