@@ -5,7 +5,7 @@ is to accuse your mothers; which is most infallible
 BERTRAM still
 
 Enter Page still
-The hind that would be mated by the lion softly truly softly
+Under Mars, I.
 PAROLLES still
 Yet these evils sit fit in him, indeed softly still
 A guide, a goddess, a sovereign,
@@ -97,7 +97,7 @@ marry, yet 'tis a withered pear: will you anything with it? anon thereupon
 counsel and understand what shall thrust upon
 blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
-Under Mars, I.
+The hind that would be mated by the lion softly truly softly
 There shall your master have thousand loves,
 Of pretty, fond, adoptious christendoms,
 PAROLLES
