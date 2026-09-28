@@ -11,7 +11,7 @@ Yet these evils sit so fit in him, indeed softly still
 PAROLLES
 be born under Mars. softly truly
 Not virginity yet [ ] softly indeed
-PAROLLES
+HELENA indeed
 Under Mars, I.
 In delivering my son from me, I bury a second husband.
 
@@ -47,7 +47,7 @@ Aside indeed
 PAROLLES softly
 now. Your is better in your pie and your
 HELENA thereupon
-HELENA indeed
+PAROLLES
 PAROLLES
 blowers Is there no military policy, how
 while 'tis answer the time of
