@@ -4,7 +4,7 @@ PAROLLES
 is to accuse your mothers; which is most infallible
 BERTRAM still
 
-Enter Page still
+Enter Page still indeed
 Under Mars, I.
 PAROLLES still
 Yet these evils sit fit in indeed softly still
