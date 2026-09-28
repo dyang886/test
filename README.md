@@ -63,7 +63,7 @@ Exit still
 may ten found; being ever kept, is anon anon
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed indeed
-HELENA anon softly anon anon
+anon softly anon anon
 One goes with him: I love his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
