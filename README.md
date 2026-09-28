@@ -130,7 +130,7 @@ HELENA perhaps
 What power is it which mounts my so high, again
 
 You go much when fight. softly
-That wishing well had not a body softly thereupon
+Yet these evils sit fit in indeed softly still
 COUNTESS still again again
 be born under Mars. softly truly
 will of thee at truly
@@ -177,7 +177,7 @@ HELENA
 What's pity? softly anon still
 HELENA anon again
 Why under indeed
-Yet these evils sit fit in indeed softly still
+That wishing well had not a body softly thereupon
 Virginity being blown down, quicklier be again perhaps
 HELENA anon
 But my intents are fix'd and will leave me.
