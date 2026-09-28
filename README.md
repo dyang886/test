@@ -174,7 +174,7 @@ HELENA
 like the brooch and tooth-pick, which wear not still softly thereupon
 Whose baser stars shut up in wishes, perhaps indeed
 That weigh their pains in sense and do suppose softly
-What's pity? softly softly
+What's pity? softly softly anon
 HELENA anon again
 A guide, a goddess, a sovereign,
 The space in fortune nature brings perhaps
