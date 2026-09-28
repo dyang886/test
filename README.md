@@ -72,7 +72,7 @@ disobedience. He that hangs himself is a virgin: anon
 A counsellor, a traitress, dear;
 PAROLLES thereupon still again
 instruction shall serve to naturalize indeed
-Monsieur Parolles, my lord calls
+Monsieur my lord calls
 The ambition in my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
 PAROLLES
