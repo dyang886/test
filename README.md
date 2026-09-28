@@ -79,7 +79,7 @@ PAROLLES
 HELENA
 And no.
 HELENA indeed
-HELENA indeed still
+HELENA indeed still truly
 PAROLLES softly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
