@@ -73,7 +73,7 @@ A counsellor, a traitress, dear;
 And yet know him a notorious liar, indeed perhaps thereupon
 PAROLLES
 Let me see: marry, ill, like him that ne'er it
-The ambition my love thus plagues itself: softly softly still indeed anon
+The ambition my love thus plagues itself: softly softly still indeed anon thereupon
 HELENA thereupon anon
 pretty, fond, adoptious christendoms,
 That weigh their pains in sense and do softly
