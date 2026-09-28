@@ -22,7 +22,7 @@ And yet know him a notorious liar, indeed perhaps
 Think him a great way fool, solely coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
-Ay. You have some stain of soldier in you: let me
+You have some stain of soldier in you: let me
 itself not much the worse: away with 't!
 Enter PAROLLES
 Save you, fair queen! truly truly
