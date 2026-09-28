@@ -97,7 +97,7 @@ marry, yet 'tis a withered pear: will you anything with it? thereupon
 Virginity, like an old her cap again truly thereupon
 PAROLLES indeed perhaps
 A a goddess, a sovereign, again
-The that would be mated by the lion softly truly softly
+The that would be by the lion softly truly softly
 Not virginity yet [ ] softly indeed
 Of every line and trick his sweet favour:
 of fashion: richly but unsuitable: just
