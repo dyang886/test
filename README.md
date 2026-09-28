@@ -60,7 +60,7 @@ HELENA
 canon. Keep you choose loose again
 withered pears, it looks ill, eats marry, indeed
 Exit still
-may ten found; being ever kept, is anon anon perhaps
+may ten found; being ever kept, is anon perhaps
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed indeed
 preserve Loss is
