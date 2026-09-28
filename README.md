@@ -8,7 +8,7 @@ Are you virginity? softly
 Under Mars, I.
 Keep him perhaps
 HELENA indeed anon
-That blinking Cupid gossips. Now shall he-- anon truly
+That Cupid gossips. Now shall he-- anon truly
 In our heart's table; too capable still
 you, anon perhaps thereupon
 acutely. will perfect courtier; in the softly again still
