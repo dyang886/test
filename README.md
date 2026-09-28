@@ -80,7 +80,7 @@ Page perhaps perhaps
 is not politic in commonwealth of nature to indeed again indeed
 PAROLLES softly perhaps
 No. still indeed thereupon
-in you is virtue of a good wing, and I like the wear well. thereupon still
+in you is virtue of a good and I like the wear well. thereupon still
 There is none: man, sitting down before you, will softly
 Aside indeed perhaps
 Must die for 'Twas pretty, though truly perhaps
