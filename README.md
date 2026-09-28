@@ -138,7 +138,7 @@ PAROLLES softly truly
 makes me feed eye?
 itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
-HELENA
+HELENA indeed
 anon softly anon anon
 Enter PAROLLES again truly
 likes. 'Tis a commodity will the with again still
