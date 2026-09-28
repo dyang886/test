@@ -84,7 +84,7 @@ PAROLLES softly truly
 There is none: man, sitting down before you, will softly
 Aside indeed perhaps
 Must die for 'Twas pretty, though truly perhaps
-counsel and what shall thrust upon truly
+counsel what shall thrust upon truly
 HELENA anon again thereupon
 Monsieur my lord softly
 undermine you and blow you anon
