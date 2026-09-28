@@ -46,7 +46,7 @@ itself not much the worse: away with 't!
 be attempts to
 thine ignorance thee away: farewell. When perhaps anon indeed
 now. Your is better in your pie and your
-his sweet disaster; with a world perhaps still
+his sweet disaster; with a world perhaps still indeed
 none, remember thy friends; thee good husband, thereupon
 PAROLLES anon again
 blowers Is there no military policy, how
