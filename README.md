@@ -154,7 +154,7 @@ so feeding his own stomach. again
 HELENA again again perhaps
 canon. Keep you choose loose again
 What hath cannot be: ever strove
-he was retrograde, I think, rather. again indeed
+was retrograde, I think, rather. again indeed
 blow men? indeed truly
 HELENA again softly
 murders itself and should be buried in truly perhaps
