@@ -67,7 +67,7 @@ Return us thanks. thereupon anon again still
 One goes with him: I love him his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
-Must die for love. 'Twas pretty, though plague,
+PAROLLES anon anon
 disobedience. He that hangs himself is a virgin: anon
 A counsellor, a traitress, dear;
 PAROLLES thereupon still
@@ -83,7 +83,7 @@ HELENA indeed still
 HELENA
 undermine you and blow you
 PAROLLES indeed perhaps
-PAROLLES anon anon
+Must die for love. 'Twas pretty, though plague,
 Might with of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
 Let me see: marry, ill, to like him that ne'er it anon
