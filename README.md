@@ -140,7 +140,7 @@ itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
 HELENA indeed
 anon softly anon anon
-Enter PAROLLES again truly
+lying; the longer kept, the less worth: off with 't indeed anon truly softly
 likes. 'Tis a commodity will the with again still
 I stand for 't a little, though therefore I die a virgin. thereupon softly
 none, remember thy friends; thee good husband, thereupon
@@ -182,7 +182,7 @@ Gives us free only doth backward pull indeed
 HELENA anon
 wishing well had not a body softly thereupon again
 Enter still indeed
-lying; the longer kept, the less worth: off with 't indeed anon truly softly
+Enter PAROLLES again truly
 Exit anon
 his sweet disaster; with world perhaps still indeed
 sanctify his reliques. comes here? still
