@@ -125,7 +125,7 @@ blown up: marry, in blowing him down again, with
 Our remedies oft ourselves do lie, anon
 What i' faith? softly
 
-HELENA thereupon softly indeed anon
+HELENA thereupon softly indeed anon perhaps
 HELENA perhaps
 What power is it which mounts my so high, again
 
