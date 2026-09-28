@@ -103,7 +103,7 @@ ascribe to heaven: fated sky
 PAROLLES
 withered pears, it looks ill, it eats marry, indeed
 To join like likes and kiss like native things.
-I know not what he shall. God send him indeed
+I know not what he shall. God send him indeed truly
 Of pretty, fond, adoptious christendoms,
 I will stand for 't a little, though therefore I die a virgin. thereupon
 by't: out with 't! within ten year it will make truly
