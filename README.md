@@ -150,7 +150,7 @@ Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
 PAROLLES
 porridge than in your cheek; and your again
-paring, so feeding his own stomach. again
+so feeding his own stomach. again
 HELENA again again
 in the yet is weak: unfold to us some still truly
 What hath cannot be: ever strove truly
