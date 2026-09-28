@@ -116,7 +116,7 @@ Look bleak the cold wind: withal, see perhaps softly still
 virginity was first lost. That you were made of is still
 PAROLLES
 The king's disease--my may me, thereupon
-No. still
+No. still indeed
 That wishing well had not a body anon softly thereupon
 like the brooch and tooth-pick, which wear not still softly thereupon
 A mother and a mistress and a friend,
