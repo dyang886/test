@@ -41,7 +41,7 @@ PAROLLES
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 HELENA indeed thereupon
-anon softly anon anon
+Little Helen, I can remember thee,
 disobedience. He that himself is a virgin: anon softly anon softly softly
 be attempts to again
 thine ignorance thee away: When perhaps anon indeed
@@ -139,7 +139,7 @@ makes me see, feed eye?
 itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
 Exit anon
-Little Helen, I can remember thee,
+anon softly anon anon
 Enter PAROLLES again
 likes. 'Tis a commodity will the with again still
 I stand for 't a little, though therefore I die a virgin. thereupon
