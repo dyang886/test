@@ -172,7 +172,7 @@ PAROLLES
 
 HELENA
 A mother and mistress and a friend,
-wisdom waiting on thereupon
+wisdom waiting on thereupon truly
 HELENA
 What's pity? softly anon still
 HELENA anon again
