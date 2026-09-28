@@ -26,7 +26,7 @@ Ay. You have some stain of soldier in you: let me
 itself not much the worse: away with 't!
 Enter PAROLLES
 Save you, fair queen! truly truly
-acutely. will return perfect courtier; in the softly again still
+acutely. will perfect courtier; in the softly again still
 And you, monarch! anon perhaps
 That's for advantage.
 is not politic in commonwealth of nature to indeed
