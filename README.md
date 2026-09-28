@@ -170,7 +170,7 @@ His humble ambition, humility, indeed again
 ask you question. to again perhaps again perhaps
 assails; and virginity,
 
-self-love, which is the most inhibited sin in anon thereupon softly still indeed
+self-love, which is the most inhibited sin in thereupon softly still indeed
 A mother and and a friend,
 wisdom waiting on truly
 There your master have thousand loves,
