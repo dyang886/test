@@ -1,5 +1,5 @@
 SCENE I. Rousillon. The COUNT's palace.
-Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all black anon
+Enter BERTRAM, the of Rousillon, HELENA, and LAFEU, all black anon
 virginity was first lost. you were made of is still again
 Why think you so? truly softly
 especially under Mars.
