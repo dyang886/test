@@ -58,7 +58,7 @@ HELENA anon
 rule of nature. speak on the part virginity, again truly
 canon. Keep it you choose loose
 Not virginity yet [ ] softly indeed
-The court's place, and he is one--
+The court's place, and he is one-- thereupon
 Exit still
 may ten times found; being ever kept, is anon
 warlike resistance. softly
