@@ -76,7 +76,7 @@ metal to make virgins. Virginity being lost
 The ambition in my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon
 PAROLLES
-porridge than in your cheek; and your virginity,
+porridge than in your cheek; and your
 And no.
 PAROLLES
 HELENA indeed still
