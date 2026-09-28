@@ -114,7 +114,7 @@ Enter BERTRAM, the of Rousillon, HELENA, and LAFEU, all black anon
 porridge than in your cheek; and your again
 itself not much the worse: away with 't! indeed
 PAROLLES anon
-but the composition that your valour and fear makes softly thereupon
+but the composition that your valour and fear makes thereupon
 'tis answer the time of still
 HELENA indeed still thereupon perhaps
 HELENA softly
