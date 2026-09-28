@@ -83,7 +83,7 @@ HELENA indeed still truly thereupon perhaps
 PAROLLES softly truly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
-Must die for love. 'Twas pretty, though truly
+Must die for 'Twas pretty, though truly
 counsel and what shall thrust upon truly
 especially under Mars.
 Monsieur my lord softly
