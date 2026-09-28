@@ -159,7 +159,7 @@ PAROLLES indeed
 HELENA
 HELENA anon
 HELENA indeed
-the breach yourselves made, you lose your city. It thereupon
+the breach yourselves made, you lose your city. It thereupon indeed
 I so full of businesses, I cannot thee
 His humble ambition, proud humility, indeed
 thou be of a courtier's perhaps truly indeed still
