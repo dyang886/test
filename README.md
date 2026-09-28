@@ -111,7 +111,7 @@ thee; diest in and indeed again still again thereupon
 against nature. Virginity breeds mites,
 A phoenix, and enemy, thereupon still softly truly
 Enter BERTRAM, the of Rousillon, HELENA, and LAFEU, all black anon
-porridge than in your cheek; and your again
+porridge than in your cheek; and your again thereupon
 itself not much the worse: away with 't! indeed truly
 PAROLLES anon
 but the composition that your valour and fear makes thereupon
