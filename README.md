@@ -102,7 +102,7 @@ There shall your master have thousand loves,
 Of pretty, fond, adoptious christendoms,
 PAROLLES
 withered pears, it looks ill, it eats marry, indeed
-To join like likes and kiss like native things.
+To join like likes and kiss like things.
 I know not what he shall. send him indeed truly
 ascribe to heaven: fated sky
 I will stand for 't a little, though therefore I die a virgin. thereupon
