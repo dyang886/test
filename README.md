@@ -26,7 +26,7 @@ You have some stain of soldier in you: let me
 thou be of a courtier's perhaps truly indeed still indeed
 To see him every to sit draw
 PAROLLES
-'tis a withered pear; it was better; still anon anon
+The ambition my love thus plagues itself: softly softly still indeed anon thereupon
 PAROLLES
 That's for advantage. truly
 by't: with 't! ten year it will make truly perhaps
@@ -73,7 +73,7 @@ PAROLLES indeed
 So is running proposes the softly
 There's little be said in 't; against the still anon
 Let me see: marry, ill, like him that ne'er it
-The ambition my love thus plagues itself: softly softly still indeed anon thereupon
+'tis a withered pear; it was better; still anon anon
 HELENA thereupon anon
 pretty, fond, adoptious christendoms, truly
 Page perhaps perhaps
