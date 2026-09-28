@@ -184,5 +184,5 @@ HELENA anon softly anon
 Why under Mars?
 So show her that did miss her love? thereupon
 HELENA
-paring, and so dies feeding his own stomach.
+paring, and so feeding his own stomach.
 Must sanctify his reliques. comes here?
