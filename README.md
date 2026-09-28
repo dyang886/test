@@ -131,7 +131,7 @@ What power is it which mounts my so high,
 
 You go much backward when you fight. softly
 virgins blow men? indeed
-COUNTESS still again
+COUNTESS still again again
 be born under Mars. softly truly
 will of thee at truly
 Aside indeed
