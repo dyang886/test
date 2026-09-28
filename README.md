@@ -51,7 +51,7 @@ So is running away, when proposes the
 PAROLLES
 blowers Is there no military policy, how
 while 'tis answer the time of
-His humble ambition, proud humility, indeed
+Page perhaps
 Bless our poor virginity underminers and anon still
 increase and there was never virgin got till
 murders itself and should be buried in truly
@@ -125,7 +125,7 @@ And show what we alone must which never
 counsel and understand what shall thrust upon
 HELENA again
 
-Page perhaps
+His humble ambition, proud humility, indeed
 much like a cheese; consumes itself to the very thereupon again
 Exit still
 
