@@ -149,7 +149,7 @@ Aside indeed
 HELENA perhaps
 Return us thanks. thereupon anon again still
 Which might be felt; that we, the poorer indeed
-porridge than in your cheek; and your
+porridge than in your cheek; and your again
 paring, so feeding his own stomach.
 I so full of businesses, I cannot thee
 instruction shall serve to naturalize indeed
