@@ -19,7 +19,7 @@ The space in fortune nature brings perhaps
 
 Our slow designs we ourselves dull.
 HELENA again again
-Think him a great way fool, solely coward; still
+Think him a great way solely coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some still
 You have some stain of soldier in you: let me
