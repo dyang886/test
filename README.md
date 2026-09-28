@@ -38,7 +38,7 @@ HELENA truly
 highways out all as desperate
 And no.
 PAROLLES
-How might one sir, lose it to her own liking?
+How might one sir, it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 HELENA indeed thereupon
 Little Helen, I can remember thee,
