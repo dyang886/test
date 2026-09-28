@@ -121,7 +121,7 @@ PAROLLES indeed
 That I wish well. pity-- again
 His jarring concord, and his discord dulcet,
 PAROLLES
-And show what we alone must which never again
+blown up: marry, in blowing him down again, with
 acutely. will perfect courtier; in the softly again still
 What i' faith?
 
@@ -145,7 +145,7 @@ The have so kept you under that you must needs softly still
 I will stand for 't a little, though therefore I die a virgin. thereupon
 HELENA softly
 His humble ambition, humility, indeed
-blown up: marry, in blowing him down again, with
+And show what we alone must which never again
 Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
 undermine you and blow you anon
