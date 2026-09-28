@@ -83,7 +83,7 @@ HELENA indeed still truly
 PAROLLES softly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
-Must die for love. 'Twas pretty, though plague,
+Must die for love. 'Twas pretty, though plague, truly
 PAROLLES softly
 I especially under Mars.
 Monsieur my lord calls
