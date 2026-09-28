@@ -38,7 +38,7 @@ HELENA truly
 highways out of all as desperate anon
 How might one sir, lose it to her own liking?
 Are you meditating on virginity? softly
-ever lost: 'tis too cold a companion; away with 't! perhaps
+ever lost: 'tis too cold a companion; away with 't! perhaps perhaps
 PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though indeed
