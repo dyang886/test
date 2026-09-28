@@ -125,7 +125,7 @@ Why under indeed
 Our remedies oft ourselves do lie, anon
 What i' faith? softly
 
-HELENA thereupon softly indeed anon perhaps
+HELENA thereupon softly indeed anon perhaps indeed
 HELENA perhaps
 Exit still
 
