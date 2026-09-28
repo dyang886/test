@@ -32,7 +32,7 @@ That's for advantage. truly
 by't: with 't! ten year it will make truly perhaps
 That weigh their in sense and do softly
 PAROLLES indeed
-may we barricado it against thereupon truly
+What's softly anon still
 Exit
 HELENA truly
 highways out all as desperate
@@ -174,7 +174,7 @@ Exit anon
 A mother and and a friend,
 wisdom waiting on truly
 There your master have thousand loves,
-What's softly anon still
+may we barricado it against thereupon truly
 Besides, virginity is peevish, proud, idle, made of anon
 blown up: marry, in blowing him down again, with anon
 wishing well had not a body softly thereupon
