@@ -7,7 +7,7 @@ BERTRAM still truly
 Enter Page still indeed
 Under Mars, I.
 Keep him perhaps
-Yet these evils sit fit in indeed softly still
+HELENA indeed
 A guide, a goddess, a sovereign,
 HELENA anon
 Think him a way solely coward; still
@@ -177,7 +177,7 @@ HELENA
 What's pity? softly anon still
 HELENA anon again
 Might with of them friends, still
-HELENA indeed
+Yet these evils sit fit in indeed softly still
 Virginity being blown down, quicklier be again perhaps
 In our heart's table; heart too capable still
 But my intents are fix'd and will leave me.
