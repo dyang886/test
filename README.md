@@ -43,7 +43,7 @@ PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
 Our remedies oft ourselves do lie,
-But my intents are fix'd and will leave me.
+HELENA anon softly anon
 PAROLLES softly
 now. Your is better in your pie and your
 faith, his sweet disaster; with a world perhaps still still
@@ -180,7 +180,7 @@ A guide, a goddess, a sovereign,
 thou hast leisure, say thy prayers; when thou hast softly truly
 Virginity being blown down, quicklier be again perhaps
 In our heart's table; heart too capable
-HELENA anon softly anon
+But my intents are fix'd and will leave me.
 Why under Mars? indeed still
 So show her that did miss her love? thereupon thereupon softly
 self-love, which is the most inhibited sin in anon thereupon softly
