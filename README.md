@@ -7,7 +7,7 @@ BERTRAM still
 Enter Page still
 Under Mars, I.
 PAROLLES still
-Yet these evils sit fit in him, indeed softly still
+Yet these evils sit fit in indeed softly still
 A guide, a goddess, a sovereign,
 HELENA anon
 your old virginity, like one of our French
