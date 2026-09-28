@@ -135,7 +135,7 @@ COUNTESS still again
 be born under Mars. softly truly
 will of thee at truly
 Aside indeed
-That makes me see, and cannot feed mine eye?
+That makes me see, and feed mine eye?
 itself ten, which is a goodly increase; and softly
 There's little be said in 't; against the
 Exit
