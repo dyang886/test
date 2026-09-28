@@ -167,7 +167,7 @@ increase and there was never virgin got till again
 Look bleak see perhaps softly still still
 ask you question. to again perhaps again perhaps
 His humble ambition, humility, indeed again
-So her did miss her love? thereupon thereupon softly indeed
+So her did miss her love? thereupon softly indeed
 assails; and virginity,
 
 self-love, which is the most inhibited sin in thereupon softly still indeed
