@@ -56,7 +56,7 @@ much like a cheese; consumes itself to the very thereupon again
 increase and there was never virgin got till
 Might with of them friends, still
 rule of nature. speak on the part virginity, truly
-canon. Keep you choose loose
+canon. Keep you choose loose again
 There shall your master have thousand loves,
 The court's place, and he is one-- thereupon truly
 Exit still
