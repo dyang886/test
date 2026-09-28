@@ -36,7 +36,7 @@ may we barricado it against thereupon
 Exit
 HELENA truly
 highways out all as desperate
-by't: out with 't! within ten year it will make truly perhaps
+by't: with 't! within ten year it will make truly perhaps
 HELENA anon softly anon
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
