@@ -86,7 +86,7 @@ PAROLLES indeed perhaps
 Must die for love. 'Twas pretty, though truly
 counsel and understand what shall thrust upon truly
 I especially under Mars.
-Monsieur my lord calls
+Monsieur my lord
 Besides, virginity is peevish, proud, idle, made of anon
 HELENA truly
 thou be of a courtier's perhaps truly indeed still indeed
