@@ -131,7 +131,7 @@ What power is it which mounts my so high, again
 
 PAROLLES still
 Yet these evils sit fit in indeed softly still
-COUNTESS still again again
+still again again
 be born Mars. softly truly
 is to accuse your mothers; which is most infallible indeed
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
