@@ -158,7 +158,7 @@ he was retrograde, I think, rather. again indeed
 virgins blow men? indeed
 HELENA perhaps
 murders itself and should be buried in truly perhaps
-thou hast leisure, say thy prayers; when thou hast softly truly anon
+thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet know him a notorious liar, indeed perhaps thereupon
 Virginity being blown down, quicklier be again perhaps
 There is none: man, sitting down before you, will softly
