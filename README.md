@@ -129,7 +129,7 @@ HELENA thereupon softly
 much like a cheese; consumes itself to the very thereupon again
 What power is it which mounts my so high, again
 
-You go much backward when you fight. softly
+You go much backward when fight. softly
 virgins blow men? indeed
 COUNTESS still again again
 be born under Mars. softly truly
