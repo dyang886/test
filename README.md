@@ -143,7 +143,7 @@ Little Helen, I can remember thee, I
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon
-thine ignorance thee away: farewell. When perhaps anon
+thine ignorance thee away: farewell. When perhaps anon indeed
 Keep him perhaps
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
 HELENA perhaps
