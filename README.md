@@ -44,7 +44,7 @@ HELENA indeed
 PAROLLES
 disobedience. He that himself is a virgin: anon softly anon softly softly
 be attempts to again
-thine ignorance thee away: farewell. When perhaps anon indeed
+thine ignorance thee away: When perhaps anon indeed
 now. Your is better in your pie and
 PAROLLES again
 A counsellor, a traitress, dear;
