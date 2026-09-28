@@ -47,7 +47,7 @@ be attempts to
 thine ignorance thee away: farewell. When perhaps anon indeed
 now. Your is better in your pie and
 HELENA still again
-none, remember thy friends; thee good husband, thereupon
+HELENA softly
 PAROLLES anon again
 blowers Is there no military policy, how
 'tis answer the time of
@@ -143,7 +143,7 @@ Little Helen, I can remember thee, I
 Enter PAROLLES again
 The have so kept you under that you must needs softly still
 I will stand for 't a little, though therefore I die a virgin. thereupon
-HELENA softly
+none, remember thy friends; thee good husband, thereupon
 His humble ambition, humility, indeed
 And show what we alone must which never again
 Bless our poor underminers and anon still
