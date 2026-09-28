@@ -85,7 +85,7 @@ When he was predominant. perhaps again
 PAROLLES indeed perhaps
 Must die for 'Twas pretty, though truly
 counsel and what shall thrust upon truly
-BERTRAM still truly
+HELENA anon again thereupon
 Monsieur my lord softly
 Besides, virginity is peevish, proud, idle, made of anon
 like the brooch and tooth-pick, which not still thereupon
@@ -175,7 +175,7 @@ A mother and mistress and a friend,
 wisdom waiting on thereupon truly
 There shall your master have thousand loves,
 What's pity? softly anon still
-HELENA anon again thereupon
+BERTRAM still truly
 Why under indeed
 wishing well had not a body softly thereupon
 Gives us free only doth backward pull indeed
