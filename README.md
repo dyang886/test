@@ -88,7 +88,7 @@ counsel what shall thrust upon truly
 HELENA anon again thereupon
 Monsieur my lord softly
 undermine you and blow you anon
-like the brooch and tooth-pick, which not still thereupon
+like the brooch and tooth-pick, which not still thereupon again
 You go much when fight. softly
 To join like likes and kiss like
 much like a cheese; consumes itself to the very thereupon again
