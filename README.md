@@ -8,7 +8,7 @@ Enter Page still indeed
 Under Mars, I.
 Keep him perhaps
 HELENA indeed
-I will stand for 't a little, though therefore I die a virgin. thereupon
+That blinking Cupid gossips. Now shall he-- still anon truly
 In our heart's table; heart too capable still
 you, monarch! anon perhaps
 Our remedies oft ourselves do lie, anon
@@ -142,7 +142,7 @@ Exit
 Little Helen, I can remember thee, I
 Enter PAROLLES again
 The have so kept you under that you must needs softly still
-That blinking Cupid gossips. Now shall he-- still anon truly
+I will stand for 't a little, though therefore I die a virgin. thereupon
 HELENA softly
 His humble ambition, humility, indeed
 blown up: marry, in blowing him down again, with
