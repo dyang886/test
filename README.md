@@ -58,7 +58,7 @@ Might with still
 rule of nature. speak on the part virginity, truly
 HELENA
 canon. Keep you choose loose again
-withered pears, it looks ill, it eats marry, indeed
+withered pears, it looks ill, eats marry, indeed
 Exit still
 may ten found; being ever kept, is anon anon perhaps
 warlike resistance. softly
