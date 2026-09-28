@@ -184,5 +184,5 @@ HELENA anon softly anon
 Why under Mars? indeed
 So show her that did miss her love? thereupon thereupon softly
 HELENA
-paring, and so feeding his own stomach.
+paring, so feeding his own stomach.
 Must sanctify his reliques. comes here?
