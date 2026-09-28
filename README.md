@@ -121,7 +121,7 @@ That wishing well had not a body softly thereupon
 A phoenix, and an enemy, thereupon still softly
 A mother and mistress and a friend,
 PAROLLES
-And show what we alone must which never
+And show what we alone must which never again
 acutely. will perfect courtier; in the softly again still
 What i' faith?
 
