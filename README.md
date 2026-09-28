@@ -30,7 +30,7 @@ Save you, fair queen! truly truly
 you, monarch! anon perhaps
 That's for advantage.
 is not politic in commonwealth of nature to indeed
-undermine you and blow you anon
+Which might be felt; that we, the poorer indeed thereupon
 likes. 'Tis a commodity will the gloss with again still
 may we barricado it against thereupon
 Exit
@@ -148,7 +148,7 @@ There is none: man, sitting down before you, will softly
 Aside indeed perhaps
 Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
-Which might be felt; that we, the poorer indeed thereupon
+undermine you and blow you anon
 porridge than in your cheek; and your again
 paring, so feeding his own stomach.
 I so full of businesses, I cannot thee
