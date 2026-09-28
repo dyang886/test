@@ -133,7 +133,7 @@ You go much when fight. softly
 Yet these evils sit fit in indeed softly still
 COUNTESS still again again
 be born under Mars. softly truly
-will of thee at truly
+will of thee at truly indeed
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
 makes me see, and feed eye?
 itself ten, which is a goodly increase; and softly perhaps
