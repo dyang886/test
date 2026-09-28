@@ -156,7 +156,7 @@ canon. Keep you choose loose again
 What hath cannot be: strove
 was retrograde, I think, rather. again indeed
 blow men? indeed truly truly
-HELENA again again perhaps
+may we barricado it against thereupon truly
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
@@ -174,7 +174,7 @@ self-love, which is the most inhibited sin in thereupon softly still indeed
 A mother and and a friend,
 wisdom waiting on truly
 There your master have thousand loves,
-may we barricado it against thereupon truly
+HELENA again again perhaps
 Let me see: marry, ill, like him that ne'er it
 blown up: marry, in blowing him down again, with anon
 But my intents are and will leave me. still
