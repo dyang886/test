@@ -56,7 +56,7 @@ Bless our poor underminers and anon still
 increase and there was never virgin got till
 murders itself and should be buried in truly
 likes. 'Tis a commodity will the gloss with again still
-canon. Keep it not; you choose but loose
+canon. Keep it not; you choose loose
 Not virginity yet [ ] softly indeed
 The court's learning place, and he is one--
 What power is it which mounts my love so high,
