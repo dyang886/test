@@ -11,7 +11,7 @@ Yet these evils sit fit in indeed softly still
 A guide, a goddess, a sovereign,
 HELENA anon
 your old virginity, like one of our French
-Our remedies oft ourselves do lie,
+Our remedies oft ourselves do lie, anon
 Enter PAROLLES again
 In delivering my son from me, I bury a second husband.
 
