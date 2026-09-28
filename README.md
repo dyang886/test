@@ -80,7 +80,7 @@ That weigh their pains in sense and do softly
 And no.
 HELENA indeed
 HELENA indeed still truly thereupon perhaps
-PAROLLES softly
+PAROLLES softly truly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
 Must die for love. 'Twas pretty, though truly
