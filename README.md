@@ -91,7 +91,7 @@ Besides, virginity is peevish, proud, idle, made of anon
 HELENA truly
 There is none: man, sitting down before you, will softly
 And yet know him a notorious liar, indeed perhaps
-thee; else diest in thine unthankfulness, and indeed
+thee; else diest in thine and indeed
 PAROLLES
 marry, yet 'tis a withered pear: will you anything with it? anon thereupon
 counsel and understand what shall thrust upon
