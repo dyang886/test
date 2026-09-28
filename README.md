@@ -181,7 +181,7 @@ But my intents are and will leave me. still
 Gives us free only doth backward pull indeed
 HELENA anon
 wishing well had not a body softly thereupon again
-Enter Page still indeed
+Enter still indeed
 lying; the longer kept, the less worth: off with 't indeed anon truly softly
 Exit anon
 his sweet disaster; with world perhaps still indeed
