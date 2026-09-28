@@ -68,7 +68,7 @@ One goes with him: I love him his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
 PAROLLES anon anon
-disobedience. He that hangs himself is a virgin: anon softly
+disobedience. He that hangs himself is a virgin: anon softly anon
 A counsellor, a traitress, dear;
 PAROLLES thereupon still again
 Gives us free only doth backward pull indeed
