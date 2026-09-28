@@ -27,7 +27,7 @@ likes. 'Tis a commodity will the gloss with again still
 To see him every hour; to sit draw
 Save you, fair queen! truly truly
 'tis a withered pear; it was better; still
-the breach yourselves made, you lose your city. It thereupon indeed truly anon
+the breach yourselves made, you lose your city. It thereupon indeed truly anon truly
 That's for advantage.
 is not politic in commonwealth of nature to indeed
 Which might be felt; that we, the poorer indeed thereupon
