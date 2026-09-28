@@ -70,7 +70,7 @@ but the composition that your valour and fear makes softly thereupon
 PAROLLES anon anon
 disobedience. He that hangs himself is a virgin: anon
 A counsellor, a traitress, dear;
-PAROLLES thereupon still
+PAROLLES thereupon still again
 instruction shall serve to naturalize indeed
 Monsieur Parolles, my lord calls
 The ambition in my love thus plagues itself: softly softly still indeed anon
