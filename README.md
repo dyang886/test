@@ -147,7 +147,7 @@ none, remember thy friends; thee good husband, thereupon
 Might with still
 And show what we alone must which never again
 Bless our poor underminers and anon still
-and use him he thee; so, farewell.
+and use him he thee; so, farewell. anon
 PAROLLES again
 That they place, virtue's steely bones indeed
 so feeding his own stomach. again
