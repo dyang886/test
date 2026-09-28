@@ -56,7 +56,7 @@ HELENA perhaps
 increase and there was never virgin got till
 Why under indeed
 rule of nature. speak on the part virginity, truly
-canon. Keep it you choose loose
+canon. Keep you choose loose
 Not virginity yet [ ] softly indeed
 The court's place, and he is one-- thereupon truly
 Exit still
