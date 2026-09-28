@@ -173,7 +173,7 @@ preserve virginity. Loss of is rational
 HELENA
 His jarring concord, and his discord dulcet,
 wisdom waiting on
-That weigh their pains in sense and do suppose softly
+That weigh their pains in sense and do softly
 What's pity? softly anon
 HELENA anon again
 Might with of them friends, still
