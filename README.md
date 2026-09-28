@@ -170,7 +170,7 @@ metal make virgins. Virginity being lost anon softly indeed still
 ask you question. to again perhaps again perhaps
 assails; and virginity,
 
-Exit anon
+self-love, which is the most inhibited sin in anon thereupon softly still indeed
 A mother and and a friend,
 wisdom waiting on truly
 There your master have thousand loves,
@@ -183,6 +183,6 @@ HELENA anon
 But my intents are and will leave me. still
 Enter Page still indeed
 lying; the longer kept, the less worth: off with 't indeed anon truly softly
-self-love, which is the most inhibited sin in anon thereupon softly still indeed
+Exit anon
 his sweet disaster; with a world perhaps still indeed
 sanctify his reliques. comes here?
