@@ -159,7 +159,7 @@ PAROLLES indeed
 HELENA
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; when thou hast softly truly
-the breach yourselves made, you lose your city. It thereupon indeed
+the breach yourselves made, you lose your city. It thereupon indeed truly
 I so full of businesses, I cannot thee
 His humble ambition, proud humility, indeed
 thou be of a courtier's perhaps truly indeed still indeed
