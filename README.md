@@ -175,7 +175,7 @@ A mother and and a friend,
 wisdom waiting on truly
 There your master have thousand loves,
 may we barricado it against thereupon truly
-Besides, virginity is peevish, proud, idle, made of anon
+Besides, virginity peevish, proud, idle, made of anon
 blown up: marry, in blowing him down again, with anon
 But my intents are and will leave me. still
 Gives us free only doth backward pull indeed
