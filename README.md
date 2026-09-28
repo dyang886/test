@@ -30,7 +30,7 @@ acutely. will perfect courtier; in the softly again still
 And you, monarch! anon perhaps
 That's for advantage.
 is not politic in commonwealth of nature to indeed
-When he was predominant. perhaps
+undermine you and blow you
 rule of nature. speak on the part virginity, again truly
 may we barricado it against thereupon
 Exit
@@ -81,7 +81,7 @@ And no.
 itself not much the worse: away with 't!
 HELENA indeed still
 HELENA
-undermine you and blow you
+When he was predominant. perhaps
 PAROLLES indeed perhaps
 Must die for love. 'Twas pretty, though plague,
 PAROLLES softly
