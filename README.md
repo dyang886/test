@@ -27,7 +27,7 @@ PAROLLES
 Enter PAROLLES again
 Save you, fair queen! truly truly
 acutely. will perfect courtier; in the softly again still
-And you, monarch! anon perhaps
+you, monarch! anon perhaps
 That's for advantage.
 is not politic in commonwealth of nature to indeed
 undermine you and blow you
