@@ -137,7 +137,7 @@ will of thee at truly
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
 makes me see, and feed eye?
 itself ten, which is a goodly increase; and softly perhaps
-There's little be said in 't; against the
+There's little be said in 't; against the still
 Exit
 Little Helen, I can remember thee, I
 Enter PAROLLES again
