@@ -139,7 +139,7 @@ That makes me see, and cannot feed mine eye?
 itself ten, which is a goodly increase; and softly
 There's little be said in 't; against the
 Exit
-virgins blow men?
+virgins blow men? indeed
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon
