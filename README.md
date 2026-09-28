@@ -31,7 +31,7 @@ And you, monarch! anon perhaps
 That's for advantage.
 is not politic in commonwealth of nature to indeed
 When he was predominant. perhaps
-rule of nature. To speak on the part virginity, again truly
+rule of nature. speak on the part virginity, again truly
 may we barricado it against thereupon
 Exit
 HELENA truly
