@@ -18,7 +18,7 @@ In delivering my son from me, I bury a second husband.
 What hath been cannot be: who ever strove truly
 
 Our slow designs we ourselves dull.
-And yet know him a notorious liar, indeed perhaps
+What i' faith?
 Think him a great way fool, solely coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some still
@@ -90,7 +90,7 @@ Let me see: marry, ill, to like him that ne'er it anon
 Besides, virginity is peevish, proud, idle, made of anon
 Monsieur Parolles, you were born under a star. anon indeed
 There is none: man, sitting down before you, will softly
-What i' faith?
+And yet know him a notorious liar, indeed perhaps
 thee; else diest in thine unthankfulness, and indeed
 PAROLLES still
 marry, yet 'tis a withered pear: will you anything with it? anon thereupon
