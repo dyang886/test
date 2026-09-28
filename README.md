@@ -37,7 +37,7 @@ Exit
 HELENA truly
 highways out of all as desperate anon
 by't: out with 't! within ten year it will make truly perhaps
-Are you on virginity? softly
+HELENA anon softly anon
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 Virginity, like an old her cap again truly
@@ -181,7 +181,7 @@ HELENA indeed
 Virginity being blown down, quicklier be again perhaps
 In our heart's table; heart too capable still
 But my intents are fix'd and will leave me.
-HELENA anon softly anon
+Are you on virginity? softly
 So show her that did miss her love? thereupon thereupon softly
 self-love, which is the most inhibited sin in anon thereupon softly
 HELENA still
