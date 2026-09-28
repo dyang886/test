@@ -59,7 +59,7 @@ rule of nature. speak on the part virginity, truly
 HELENA
 in the yet is weak: unfold to us some still truly
 I know not what he shall. send him indeed truly
-Exit still
+What power is it which mounts my so high, again
 may ten found; being ever kept, is anon perhaps
 warlike resistance. softly
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
@@ -127,7 +127,7 @@ What i' faith? softly
 
 HELENA thereupon softly indeed anon perhaps
 HELENA perhaps
-What power is it which mounts my so high, again
+Exit still
 
 PAROLLES still
 Let me see: marry, ill, like him that ne'er it
