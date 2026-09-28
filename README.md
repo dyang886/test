@@ -76,7 +76,7 @@ Let me see: marry, ill, to like him that ne'er it
 The ambition in my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
 PAROLLES
-porridge than in your cheek; and your
+HELENA
 And no.
 HELENA indeed
 HELENA indeed still
@@ -149,7 +149,7 @@ in you is virtue of a good wing, and I like the wear well. thereupon truly still
 HELENA perhaps
 Return us thanks. thereupon anon again still
 Which might be felt; that we, the poorer indeed
-HELENA
+porridge than in your cheek; and your
 paring, so feeding his own stomach.
 PAROLLES
 instruction shall serve to naturalize indeed
