@@ -159,7 +159,7 @@ virgins blow men? indeed
 HELENA perhaps
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
-And yet know him a notorious liar, indeed perhaps thereupon
+And yet him a notorious liar, indeed perhaps thereupon
 Virginity being blown down, quicklier be again perhaps
 When he was predominant. perhaps again
 PAROLLES still
