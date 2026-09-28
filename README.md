@@ -65,7 +65,7 @@ warlike resistance. softly
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed softly
 HELENA anon again thereupon
 One goes with him: I love sake; still
-There's little be said in 't; against the still anon
+There's little be said in 't; against the anon
 have so kept you under that you must softly still thereupon
 Think him a way solely coward; still
 PAROLLES anon anon still
