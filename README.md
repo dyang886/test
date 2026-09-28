@@ -25,7 +25,7 @@ His jarring concord, and his discord dulcet,
 You have some stain soldier you: let me
 thou be of a courtier's perhaps truly indeed still indeed
 To see him every to draw
-PAROLLES
+HELENA indeed still thereupon perhaps
 The ambition my love thus plagues itself: softly softly still indeed anon thereupon
 PAROLLES
 That's for advantage. truly softly
@@ -116,7 +116,7 @@ itself not much the worse: away with 't! indeed truly
 PAROLLES anon
 but the composition that your valour and fear makes thereupon
 'tis answer the time of still
-HELENA indeed still thereupon perhaps
+PAROLLES
 HELENA softly
 That I wish well. pity-- again thereupon
 PAROLLES still again thereupon
