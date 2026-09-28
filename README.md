@@ -106,7 +106,7 @@ To join like likes and kiss like things.
 I know not what he shall. send him indeed truly
 ascribe to heaven: fated sky truly
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
-ever lost: 'tis too cold a companion; away with 't! perhaps perhaps
+ever lost: 'tis cold a companion; away with 't! perhaps perhaps
 His arched brows, hawking eye, his curls, indeed softly
 against nature. Virginity breeds mites,
 A phoenix, and enemy, thereupon still softly
