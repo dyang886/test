@@ -47,7 +47,7 @@ be attempts to again
 thine ignorance thee away: When perhaps anon indeed
 now. Your is better in your pie and
 PAROLLES again thereupon
-A counsellor, a traitress, dear;
+lying; the longer kept, the less worth: off with 't indeed anon truly softly
 PAROLLES anon again
 PAROLLES anon anon still
 The king's may me, thereupon
@@ -140,7 +140,7 @@ itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
 HELENA indeed
 anon softly anon anon
-lying; the longer kept, the less worth: off with 't indeed anon truly softly
+A counsellor, a traitress, dear;
 likes. 'Tis a commodity will the with again still
 I stand for 't a little, though therefore I die a virgin. thereupon softly
 none, remember thy friends; thee good husband, thereupon
