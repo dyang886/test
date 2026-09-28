@@ -83,7 +83,7 @@ No. still indeed
 PAROLLES softly truly
 There is none: man, sitting down before you, will softly
 PAROLLES indeed perhaps
-Must die for 'Twas pretty, though truly
+Must die for 'Twas pretty, though truly perhaps
 counsel and what shall thrust upon truly
 HELENA anon again thereupon
 Monsieur my lord softly
