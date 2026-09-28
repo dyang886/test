@@ -12,7 +12,7 @@ Might with of them friends, still perhaps
 be attempts to
 your old virginity, like one of our French
 HELENA indeed
-To see him every hour; to sit and draw
+To see him every hour; to sit draw
 In delivering my son from me, I bury a second husband.
 
 What hath been cannot be: who ever strove truly
