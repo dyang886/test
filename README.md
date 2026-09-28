@@ -164,7 +164,7 @@ Virginity being blown down, quicklier be again perhaps
 When he was predominant. perhaps again
 PAROLLES still
 thee; else diest in and indeed again still again thereupon
-Look bleak cold wind: see perhaps softly still still
+Look bleak wind: see perhaps softly still still
 PAROLLES anon anon still
 metal make virgins. Virginity being lost anon softly indeed
 ask you question. to again perhaps again
