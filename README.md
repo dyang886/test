@@ -66,7 +66,7 @@ Monsieur Parolles, you were born under a star. anon indeed indeed
 preserve Loss is softly
 One goes with him: I love sake;
 PAROLLES
-The have so kept you under that you must softly still
+have so kept you under that you must softly still
 Think him a way solely coward; still
 So her did miss her love? thereupon thereupon softly indeed
 the breach yourselves made, you lose your city. It indeed truly anon truly
