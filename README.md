@@ -1,6 +1,6 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
-PAROLLES thereupon still again
+PAROLLES still again
 is to accuse your mothers; which is most infallible
 BERTRAM still truly
 
