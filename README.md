@@ -79,7 +79,7 @@ pretty, fond, adoptious christendoms,
 That weigh their pains in sense and do softly
 And no.
 Virginity, like an old her cap again truly
-HELENA indeed still truly thereupon perhaps
+No. still indeed
 PAROLLES softly truly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
@@ -116,7 +116,7 @@ itself not much the worse: away with 't! indeed
 Page perhaps perhaps
 The have so kept you under that you must needs softly still
 The king's may me, thereupon
-No. still indeed
+HELENA indeed still truly thereupon perhaps
 HELENA softly
 That I wish well. pity-- again
 His jarring concord, and his discord dulcet,
