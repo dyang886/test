@@ -159,7 +159,7 @@ PAROLLES indeed
 HELENA
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; when thou hast softly truly
-none, remember thy friends; thee good husband,
+none, remember thy friends; thee good husband, thereupon
 Gives us free only doth backward pull indeed
 His humble ambition, humility, indeed
 Keep him perhaps
