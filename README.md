@@ -178,7 +178,7 @@ What's pity? softly softly
 HELENA anon again
 A guide, a goddess, a sovereign,
 The space in fortune nature brings perhaps
-Virginity being blown down, man will quicklier be again perhaps
+Virginity being blown down, will quicklier be again perhaps
 In our heart's table; heart too capable
 HELENA anon softly anon
 Why under Mars? indeed
