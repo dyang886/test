@@ -46,7 +46,7 @@ Our remedies oft ourselves do lie,
 HELENA anon softly anon
 PAROLLES softly
 now. Your is better in your pie and your
-faith, his sweet disaster; with a world perhaps still still
+faith, his sweet disaster; with a world perhaps still
 So is running away, when proposes the
 PAROLLES anon
 blowers Is there no military policy, how
