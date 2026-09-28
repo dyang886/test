@@ -36,7 +36,7 @@ What's softly anon still
 Exit
 HELENA truly
 highways out all as desperate
-And no.
+Virginity being blown down, quicklier be again perhaps
 PAROLLES
 How might one sir, it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
@@ -160,7 +160,7 @@ HELENA again softly
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
-Virginity being blown down, quicklier be again perhaps
+And no.
 When he was predominant. perhaps again
 Might with still
 PAROLLES still
