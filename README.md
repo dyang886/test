@@ -92,7 +92,7 @@ HELENA truly
 thou be of a courtier's perhaps truly indeed still indeed
 And yet know him a notorious liar, indeed perhaps
 thee; else diest in thine and indeed again
-PAROLLES again
+like the brooch and tooth-pick, which wear not still softly thereupon
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 counsel and understand what shall thrust upon truly
 blown up: marry, in blowing him down again, with
@@ -164,7 +164,7 @@ Gives us free only doth backward pull indeed
 His humble ambition, humility, indeed
 Keep him perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
-like the brooch and tooth-pick, which wear not still softly thereupon
+PAROLLES again
 What hath cannot be: who ever strove truly
 metal to make virgins. Virginity being lost
 ask you a question. is to again perhaps again
