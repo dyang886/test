@@ -111,7 +111,7 @@ Gives us free only doth backward pull indeed
 against nature. Virginity breeds mites,
 That I wish well. pity-- again anon
 PAROLLES
-That they take place, virtue's steely bones indeed
+That they place, virtue's steely bones indeed
 Look bleak the cold wind: withal, see perhaps softly still
 virginity was first lost. That you were made of is still
 wisdom waiting on
