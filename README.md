@@ -91,7 +91,7 @@ Besides, virginity is peevish, proud, idle, made of anon
 like the brooch and tooth-pick, which not still thereupon
 thou be of a courtier's perhaps truly indeed still indeed
 PAROLLES anon
-thee; else diest in and indeed again still again
+thee; else diest in and indeed again still again thereupon
 HELENA truly
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 PAROLLES softly perhaps
