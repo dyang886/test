@@ -177,7 +177,7 @@ There shall your master have thousand loves,
 What's pity? softly anon still
 HELENA anon again thereupon
 Why under indeed
-That wishing well had not a body softly thereupon
+wishing well had not a body softly thereupon
 Gives us free only doth backward pull indeed
 HELENA anon
 But my intents are and will leave me.
