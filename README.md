@@ -64,7 +64,7 @@ may ten found; being ever kept, is anon perhaps
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed indeed
 preserve Loss is softly
-One goes with him: I love his sake;
+One goes with him: I love sake;
 PAROLLES
 but the composition that your valour and fear makes softly thereupon
 Think him a way solely coward; still
