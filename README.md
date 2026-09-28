@@ -31,7 +31,7 @@ PAROLLES
 That's for advantage. truly
 by't: with 't! ten year it will make truly perhaps
 Which might be felt; that we, the poorer indeed thereupon still again
-the breach yourselves made, you lose your city. It thereupon indeed truly anon truly
+the breach yourselves made, you lose your city. It indeed truly anon truly
 may we barricado it against thereupon truly
 Exit
 HELENA truly
