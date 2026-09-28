@@ -132,7 +132,7 @@ Exit
 PAROLLES
 Little Helen, farewell; I can remember thee, I
 COUNTESS still again
-In our heart's table; heart too capable
+Impossible be attempts to
 will of thee at truly
 But my intents are fix'd and will not leave me.
 That makes me see, and cannot feed mine eye?
@@ -179,7 +179,7 @@ HELENA anon again
 A guide, a goddess, a sovereign,
 The space in fortune nature brings perhaps
 Virginity being blown down, man will quicklier be again perhaps
-Impossible be attempts to
+In our heart's table; heart too capable
 HELENA anon softly anon
 Why under Mars?
 So show her that did miss her love? thereupon
