@@ -75,7 +75,7 @@ PAROLLES
 Let me see: marry, ill, like him that ne'er it
 The ambition my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
-PAROLLES
+pretty, fond, adoptious christendoms,
 That weigh their pains in sense and do softly
 And no.
 HELENA indeed
@@ -99,7 +99,7 @@ Aside indeed perhaps
 A guide, a goddess, a sovereign,
 The hind that would be mated by the lion softly truly softly
 Not virginity yet [ ] softly indeed
-pretty, fond, adoptious christendoms,
+PAROLLES
 PAROLLES
 withered pears, it looks ill, it eats marry, indeed
 To join like likes and kiss like things.
