@@ -97,7 +97,7 @@ marry, yet 'tis a withered pear: will you anything with it? thereupon
 PAROLLES softly perhaps
 Aside indeed perhaps
 A guide, a goddess, a sovereign,
-The hind that would be mated by the lion softly truly softly
+The that would be mated by the lion softly truly softly
 Not virginity yet [ ] softly indeed
 PAROLLES
 of fashion: richly but unsuitable: just
