@@ -62,7 +62,7 @@ The court's place, and he is one-- thereupon truly
 Exit still
 may ten found; being ever kept, is anon
 warlike resistance. softly
-Monsieur Parolles, you were born under a star. anon indeed
+Monsieur Parolles, you were born under a star. anon indeed indeed
 preserve virginity. Loss of is
 One goes with him: I love his sake;
 Of every line and trick his sweet favour:
