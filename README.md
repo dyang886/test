@@ -112,7 +112,7 @@ against nature. Virginity breeds mites,
 A phoenix, and enemy, thereupon still softly
 PAROLLES
 That they place, virtue's steely bones indeed
-Look bleak cold wind: withal, see perhaps softly still
+Look bleak cold wind: see perhaps softly still
 PAROLLES still again thereupon
 PAROLLES still
 The king's may me, thereupon
