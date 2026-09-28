@@ -1,6 +1,6 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the of Rousillon, HELENA, and LAFEU, all black anon
-virginity was first lost. you were made of is still again
+virginity was first lost. you were of is still again
 Why think you so? truly softly
 especially under Mars. truly indeed
 
