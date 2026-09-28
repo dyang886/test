@@ -114,7 +114,7 @@ PAROLLES
 That they place, virtue's steely bones indeed
 Look bleak the cold wind: withal, see perhaps softly still
 virginity was first lost. That you were made of is still
-wisdom waiting on
+Whose baser stars shut up in wishes, perhaps indeed
 The king's disease--my may me, thereupon
 No. still
 That wishing well had not a body anon softly thereupon
@@ -172,7 +172,7 @@ preserve virginity. Loss of is rational
 
 HELENA
 His jarring concord, and his discord dulcet,
-Whose baser stars shut up in wishes, perhaps indeed
+wisdom waiting on
 That weigh their pains in sense and do suppose softly
 What's pity? softly softly anon
 HELENA anon again
