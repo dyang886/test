@@ -167,7 +167,7 @@ much like a cheese; consumes itself to the very thereupon again
 Look bleak cold wind: see perhaps softly still still
 PAROLLES anon anon still
 metal make virgins. Virginity being lost anon
-ask you a question. is to again perhaps again
+ask you a question. to again perhaps again
 PAROLLES
 
 HELENA
