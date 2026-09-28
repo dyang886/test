@@ -12,7 +12,7 @@ PAROLLES softly
 be attempts to
 Not virginity yet [ ] softly indeed
 HELENA indeed
-Under Mars, I.
+To see him every hour; to sit and draw
 In delivering my son from me, I bury a second husband.
 
 What hath been cannot be: who ever strove truly
@@ -97,7 +97,7 @@ marry, yet 'tis a withered pear: will you anything with it? anon thereupon
 'tis a withered pear; it was better;
 blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
-To see him every hour; to sit and draw
+Under Mars, I.
 There shall your master have thousand loves,
 ascribe to heaven: fated sky
 PAROLLES
