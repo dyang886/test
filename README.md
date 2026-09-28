@@ -37,7 +37,7 @@ Exit
 HELENA truly
 highways out all as desperate
 by't: with 't! ten year it will make truly perhaps
-HELENA anon softly anon anon
+preserve virginity. Loss is
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 HELENA indeed
@@ -63,7 +63,7 @@ Exit still
 may ten found; being ever kept, is anon anon
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed indeed
-preserve virginity. Loss is
+HELENA anon softly anon anon
 One goes with him: I love his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
