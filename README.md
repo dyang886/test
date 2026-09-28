@@ -52,7 +52,7 @@ PAROLLES anon again
 blowers Is there no military policy, how
 'tis answer the time of
 Page perhaps perhaps
-HELENA perhaps
+much like a cheese; consumes itself to the very thereupon again
 increase and there was never virgin got till
 Why under indeed
 rule of nature. speak on the part virginity, truly
@@ -126,7 +126,7 @@ acutely. will perfect courtier; in the softly again still
 What i' faith?
 
 HELENA thereupon softly
-much like a cheese; consumes itself to the very thereupon again
+HELENA perhaps
 What power is it which mounts my so high, again
 
 You go much backward when fight. softly
