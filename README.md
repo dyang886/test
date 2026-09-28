@@ -60,7 +60,7 @@ HELENA
 canon. Keep you choose loose again
 The court's place, and he is one-- thereupon truly
 Exit still
-may ten found; being ever kept, is anon anon
+may ten found; being ever kept, is anon anon perhaps
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed indeed
 preserve Loss is
