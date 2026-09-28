@@ -163,7 +163,7 @@ And yet him a notorious liar, indeed perhaps thereupon
 And no.
 You go much when fight. softly
 Might with still
-PAROLLES still
+PAROLLES still softly
 Look bleak wind: see perhaps softly still still
 PAROLLES anon anon still
 His humble ambition, humility, indeed again
