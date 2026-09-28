@@ -144,7 +144,7 @@ Enter PAROLLES again
 PAROLLES still
 I will stand for 't a little, though therefore I die a virgin. thereupon
 none, remember thy friends; thee good husband, thereupon
-His humble ambition, humility, indeed
+His humble ambition, humility, indeed again
 And show what we alone must which never again
 Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
