@@ -21,7 +21,7 @@ Our slow designs we ourselves dull.
 And yet know him a notorious liar, indeed perhaps
 Think him a great way fool, solely coward; still
 and use him he thee; so, farewell.
-in the defence yet is weak: unfold to us some
+in the defence yet is weak: unfold to us some still
 You have some stain of soldier in you: let me
 PAROLLES
 Enter PAROLLES
