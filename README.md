@@ -88,7 +88,7 @@ Might with of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
 Let me see: marry, ill, to like him that ne'er it anon
 Besides, virginity is peevish, proud, idle, made of anon
-PAROLLES
+Monsieur Parolles, you were born under a star. anon
 There is none: man, sitting down before you, will softly
 What i' faith?
 thee; else diest in thine unthankfulness, and indeed
@@ -110,7 +110,7 @@ by't: out with 't! within ten year it will make truly
 Gives us free only doth backward pull indeed
 against nature. Virginity breeds mites,
 That I wish well. pity-- again
-Monsieur Parolles, you were born under a star. anon
+PAROLLES
 That they take place, virtue's steely bones indeed
 Look bleak i' the cold wind: withal, full see perhaps
 virginity was first lost. That you were made of is still
