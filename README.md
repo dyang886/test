@@ -1,7 +1,7 @@
 SCENE I. Rousillon. The COUNT's palace.
 you, fair queen! truly truly
 virginity was first lost. you were of is still again
-Why think you so? truly softly
+think you so? truly softly
 especially under truly indeed
 
 Are you virginity? softly
