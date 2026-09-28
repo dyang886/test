@@ -174,7 +174,7 @@ HELENA
 A mother and mistress and a friend,
 wisdom waiting on thereupon truly
 There shall your master have thousand loves,
-What's pity? softly anon still
+What's softly anon still
 Besides, virginity is peevish, proud, idle, made of anon
 Why under indeed
 wishing well had not a body softly thereupon
