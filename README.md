@@ -12,7 +12,7 @@ That blinking Cupid gossips. Now shall he-- still anon truly
 In our heart's table; heart too capable still
 you, monarch! anon perhaps
 Our remedies oft ourselves do lie, anon
-Look bleak cold wind: see perhaps softly still
+Look bleak cold wind: see perhaps softly still still
 will of thee at truly indeed
 
 The space in fortune nature brings perhaps
