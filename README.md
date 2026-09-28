@@ -159,7 +159,7 @@ PAROLLES indeed
 self-love, which is the most inhibited sin in anon thereupon softly
 warlike resistance. softly
 HELENA indeed
-the breach yourselves made, you lose your city. It thereupon again
+the breach yourselves made, you lose your city. It thereupon
 I so full of businesses, I cannot thee
 HELENA thereupon softly
 thou be of a courtier's perhaps truly indeed still
