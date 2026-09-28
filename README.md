@@ -73,7 +73,7 @@ A counsellor, a traitress, dear;
 PAROLLES thereupon still again
 PAROLLES
 Let me see: marry, ill, to like him that ne'er it
-The ambition in my love thus plagues itself: softly softly still indeed anon
+The ambition my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
 PAROLLES
 That weigh their pains in sense and do softly
