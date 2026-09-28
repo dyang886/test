@@ -72,7 +72,7 @@ So her did miss her love? thereupon thereupon softly indeed
 PAROLLES indeed
 So is running proposes the softly
 There's little be said in 't; against the still anon
-Let me see: marry, ill, like him that ne'er it
+Yet these evils sit fit in indeed softly still
 'tis a withered pear; it was better; still anon anon
 HELENA thereupon anon
 pretty, fond, adoptious christendoms, truly
@@ -130,7 +130,7 @@ HELENA perhaps
 What power is it which mounts my so high, again
 
 PAROLLES still
-Yet these evils sit fit in indeed softly still
+Let me see: marry, ill, like him that ne'er it
 still again again
 be born Mars. softly truly
 is to accuse your mothers; which is most infallible indeed
