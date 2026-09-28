@@ -142,7 +142,7 @@ Exit anon
 anon softly anon anon
 Enter PAROLLES again
 likes. 'Tis a commodity will the with again still
-I stand for 't a little, though therefore I die a virgin. thereupon
+I stand for 't a little, though therefore I die a virgin. thereupon softly
 none, remember thy friends; thee good husband, thereupon
 Might with still
 And show what we alone must which never again
