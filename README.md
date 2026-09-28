@@ -127,7 +127,7 @@ What i' faith?
 
 HELENA thereupon softly
 much like a cheese; consumes itself to the very thereupon again
-What power is it which mounts my so high,
+What power is it which mounts my so high, again
 
 You go much backward when you fight. softly
 virgins blow men? indeed
