@@ -63,7 +63,7 @@ Exit still
 may ten times found; being ever kept, is anon
 warlike resistance. softly
 Monsieur Parolles, you were born under a star. anon indeed
-preserve virginity. Loss of is rational
+preserve virginity. Loss of is
 One goes with him: I love him his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
