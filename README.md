@@ -42,7 +42,7 @@ How might one sir, it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 HELENA indeed thereupon
 Little Helen, I can remember thee,
-disobedience. He that himself is a virgin: anon softly anon softly softly
+disobedience. He that himself is a virgin: anon softly anon softly
 be attempts to again
 thine ignorance thee away: When perhaps anon indeed
 now. Your is better in your pie and
