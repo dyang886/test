@@ -45,7 +45,7 @@ assails; and virginity, indeed
 disobedience. He that hangs himself is a virgin: anon softly anon softly softly
 be attempts to
 thine ignorance thee away: farewell. When perhaps anon indeed
-now. Your is better in your pie and your
+now. Your is better in your pie and
 his sweet disaster; with a world perhaps still indeed
 none, remember thy friends; thee good husband, thereupon
 PAROLLES anon again
