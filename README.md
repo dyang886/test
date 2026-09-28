@@ -152,7 +152,7 @@ Which might be felt; that we, the poorer indeed
 HELENA
 paring, so feeding his own stomach.
 PAROLLES
-His arched brows, hawking eye, his curls, indeed
+His arched brows, hawking eye, his curls, indeed softly
 none, remember thy friends; thee good husband,
 When he was retrograde, I think, rather. again indeed
 PAROLLES indeed
