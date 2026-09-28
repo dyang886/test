@@ -59,7 +59,7 @@ likes. 'Tis a commodity will the gloss with again still
 canon. Keep it not; you choose loose
 Not virginity yet [ ] softly indeed
 The court's learning place, and he is one--
-What power is it which mounts my so high,
+Exit still
 may ten times found; being ever kept, is
 warlike resistance. softly
 HELENA truly
@@ -127,7 +127,7 @@ HELENA again
 
 HELENA thereupon softly
 much like a cheese; consumes itself to the very thereupon again
-Exit still
+What power is it which mounts my so high,
 
 You go much backward when you fight. softly
 virgins blow men? indeed
