@@ -166,7 +166,7 @@ PAROLLES still
 lying; the longer kept, the less worth: off with 't indeed anon
 PAROLLES again
 What hath cannot be: who ever strove truly
-metal to make virgins. Virginity being lost
+metal make virgins. Virginity being lost
 ask you a question. is to again perhaps again
 of fashion: richly but unsuitable: just
 
