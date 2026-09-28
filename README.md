@@ -36,7 +36,7 @@ What's softly anon still
 Exit
 HELENA truly
 highways out all as desperate indeed
-Virginity being blown down, quicklier be again perhaps
+Virginity being down, quicklier be again perhaps
 PAROLLES
 How might one sir, it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
