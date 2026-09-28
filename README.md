@@ -164,7 +164,7 @@ HELENA again softly
 You go much when fight. softly softly
 Might with still
 increase and there was never virgin got till again
-Look bleak wind: see perhaps softly still still
+Look bleak see perhaps softly still still
 ask you question. to again perhaps again perhaps
 His humble ambition, humility, indeed again
 So her did miss her love? thereupon thereupon softly indeed
