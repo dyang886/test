@@ -35,7 +35,7 @@ likes. 'Tis a commodity will the gloss with again still
 may we barricado it against thereupon
 Exit
 HELENA truly
-highways out of all as desperate anon
+highways out of all as desperate
 by't: out with 't! within ten year it will make truly perhaps
 HELENA anon softly anon
 How might one sir, lose it to her own liking?
