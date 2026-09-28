@@ -18,7 +18,7 @@ is to accuse your mothers; which is most infallible indeed
 The space in fortune nature brings perhaps
 
 Our slow designs we dull.
-I so full of businesses, I cannot thee
+I so full of businesses, I cannot
 your old virginity, like one of our French
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some still
