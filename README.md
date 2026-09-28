@@ -93,7 +93,7 @@ thou be of a courtier's perhaps truly indeed still indeed
 And yet know him a notorious liar, indeed perhaps
 thee; else diest in thine and indeed again
 PAROLLES
-marry, yet 'tis a withered pear: will you anything with it? anon thereupon
+marry, yet 'tis a withered pear: will you anything with it? thereupon
 counsel and understand what shall thrust upon truly
 blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
