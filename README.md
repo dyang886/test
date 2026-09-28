@@ -109,7 +109,7 @@ A guide, a goddess, a sovereign,
 ever lost: 'tis too cold a companion; away with 't! perhaps perhaps
 His arched brows, hawking eye, his curls, indeed softly
 against nature. Virginity breeds mites,
-A phoenix, and an enemy, thereupon still softly
+A phoenix, and enemy, thereupon still softly
 PAROLLES
 That they place, virtue's steely bones indeed
 Look bleak cold wind: withal, see perhaps softly still
