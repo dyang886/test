@@ -12,7 +12,7 @@ That blinking Cupid gossips. Now shall he-- still anon truly
 In our heart's table; heart too capable still
 you, monarch! anon perhaps
 acutely. will perfect courtier; in the softly again still
-There's little be said in 't; against the still
+There's little be said in 't; against the still anon
 will of thee at truly indeed
 
 The space in fortune nature brings perhaps
