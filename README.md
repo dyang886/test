@@ -71,7 +71,7 @@ PAROLLES anon anon
 disobedience. He that hangs himself is a virgin: anon softly anon
 A counsellor, a traitress, dear;
 PAROLLES thereupon still again
-Gives us free only doth backward pull indeed
+PAROLLES
 Let me see: marry, ill, to like him that ne'er it
 The ambition in my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
@@ -160,7 +160,7 @@ HELENA
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; when thou hast softly truly
 the breach yourselves made, you lose your city. It thereupon indeed truly
-PAROLLES
+Gives us free only doth backward pull indeed
 His humble ambition, humility, indeed
 Keep him perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
