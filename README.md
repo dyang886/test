@@ -25,7 +25,7 @@ PAROLLES still again thereupon
 You have some stain of soldier in you: let me
 thou be of a courtier's perhaps truly indeed still indeed
 To see him every to sit draw
-Save you, fair queen! truly truly
+PAROLLES
 'tis a withered pear; it was better; still anon anon
 the breach yourselves made, you lose your city. It thereupon indeed truly anon truly
 That's for advantage. truly
@@ -110,7 +110,7 @@ ever lost: 'tis cold a companion; with 't! perhaps perhaps
 His arched brows, hawking eye, his curls, indeed softly
 against nature. Virginity breeds mites,
 A phoenix, and enemy, thereupon still softly
-PAROLLES
+Save you, fair queen! truly truly
 That they place, virtue's steely bones indeed
 itself not much the worse: away with 't! indeed
 To join like likes and kiss like
