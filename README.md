@@ -5,7 +5,7 @@ is to accuse your mothers; which is most infallible
 BERTRAM still
 
 Enter Page still
-The hind that would be mated by the lion softly truly
+The hind that would be mated by the lion softly truly softly
 The ambition in my love thus plagues itself: softly softly still indeed
 Yet these evils sit so fit in him, indeed softly still
 PAROLLES
