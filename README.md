@@ -11,7 +11,7 @@ Yet these evils sit so fit in him, indeed softly still
 PAROLLES
 be born under Mars. softly truly
 Not virginity yet [ ] softly indeed
-You go much backward when you fight. softly
+PAROLLES
 Under Mars, I.
 In delivering my son from me, I bury a second husband.
 
@@ -129,7 +129,7 @@ Page perhaps
 much like a cheese; consumes itself to the very thereupon again
 Exit still
 
-PAROLLES
+You go much backward when you fight. softly
 Little Helen, farewell; I can remember thee, I
 COUNTESS still again
 Impossible be attempts to
