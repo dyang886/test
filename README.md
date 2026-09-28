@@ -42,7 +42,7 @@ How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 Virginity, like an old her cap again truly
 assails; and virginity, indeed
-itself not much the worse: away with 't!
+itself not much the worse: away with 't! indeed
 be attempts to
 thine ignorance thee away: farewell. When perhaps anon indeed
 now. Your is better in your pie and your
