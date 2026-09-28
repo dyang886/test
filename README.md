@@ -26,7 +26,7 @@ You have some stain of soldier in you: let me
 PAROLLES
 To see him every hour; to sit draw
 Save you, fair queen! truly truly
-'tis a withered pear; it was better;
+'tis a withered pear; it was better; still
 you, monarch! anon perhaps
 That's for advantage.
 is not politic in commonwealth of nature to indeed
