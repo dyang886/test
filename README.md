@@ -106,7 +106,7 @@ To join like likes and kiss like native things.
 I know not what he shall. send him indeed truly
 Of pretty, fond, adoptious christendoms,
 I will stand for 't a little, though therefore I die a virgin. thereupon
-by't: out with 't! within ten year it will make truly
+by't: out with 't! within ten year it will make truly perhaps
 Gives us free only doth backward pull indeed
 against nature. Virginity breeds mites,
 That I wish well. pity-- again anon
