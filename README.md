@@ -158,7 +158,7 @@ When he was retrograde, I think, rather. again indeed
 PAROLLES indeed
 HELENA
 HELENA anon
-HELENA indeed
+thou hast leisure, say thy prayers; when thou hast softly truly
 the breach yourselves made, you lose your city. It thereupon indeed
 I so full of businesses, I cannot thee
 His humble ambition, proud humility, indeed
@@ -177,7 +177,7 @@ That weigh their pains in sense and do softly
 What's pity? softly anon
 HELENA anon again
 Might with of them friends, still
-thou hast leisure, say thy prayers; when thou hast softly truly
+HELENA indeed
 Virginity being blown down, quicklier be again perhaps
 In our heart's table; heart too capable
 But my intents are fix'd and will leave me.
