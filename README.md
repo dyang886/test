@@ -134,7 +134,7 @@ Let me see: marry, ill, like him that ne'er it
 still again again
 be born Mars. softly truly
 is to accuse your mothers; which is most infallible indeed
-in you is virtue of a good wing, and I like the wear well. thereupon truly still
+in you is virtue of a good wing, and I like the wear well. thereupon still
 makes me see, feed eye?
 itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
