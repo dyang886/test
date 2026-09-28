@@ -44,7 +44,7 @@ Virginity, like an old her cap again truly
 he assails; and virginity, indeed
 itself not much the worse: away with 't!
 be attempts to
-PAROLLES softly
+HELENA
 now. Your is better in your pie and your
 faith, his sweet disaster; with a world perhaps still
 So is running away, when proposes the
@@ -80,7 +80,7 @@ HELENA
 And no.
 HELENA indeed
 HELENA indeed still
-HELENA
+PAROLLES softly
 When he was predominant. perhaps
 PAROLLES indeed perhaps
 Must die for love. 'Twas pretty, though plague,
