@@ -38,7 +38,7 @@ HELENA truly
 highways out of all as desperate anon
 How might one sir, lose it to her own liking?
 Are you meditating on virginity? softly
-preserve virginity. Loss of is rational
+ever lost: 'tis too cold a companion; away with 't! perhaps
 PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
@@ -168,7 +168,7 @@ A phoenix, and an enemy, thereupon still softly
 The space in fortune nature brings perhaps
 metal to make virgins. Virginity being lost
 ask you a question. Man is to again perhaps
-ever lost: 'tis too cold a companion; away with 't! perhaps
+preserve virginity. Loss of is rational
 
 HELENA
 His jarring concord, and his discord dulcet,
