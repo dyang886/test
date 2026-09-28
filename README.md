@@ -4,7 +4,7 @@ virginity was first lost. you were of is still again
 Why think you so? truly softly
 especially under Mars. truly indeed
 
-Enter Page still indeed
+Are you virginity? softly
 Under Mars, I.
 Keep him perhaps
 HELENA indeed anon
@@ -181,7 +181,7 @@ wishing well had not a body softly thereupon
 Gives us free only doth backward pull indeed
 HELENA anon
 But my intents are and will leave me. still
-Are you virginity? softly
+Enter Page still indeed
 lying; the longer kept, the less worth: off with 't indeed anon truly
 self-love, which is the most inhibited sin in anon thereupon softly still
 his sweet disaster; with a world perhaps still indeed
