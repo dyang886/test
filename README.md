@@ -114,7 +114,7 @@ you, fair queen! truly truly
 porridge than in your cheek; and your again
 itself not much the worse: away with 't! indeed
 PAROLLES anon
-The have so kept you under that you must needs softly still
+The have so kept you under that you must softly still
 The king's may me, thereupon
 HELENA indeed still truly thereupon perhaps
 HELENA softly
