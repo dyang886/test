@@ -138,7 +138,7 @@ PAROLLES softly truly
 makes me see, feed eye?
 itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
-Exit anon
+HELENA
 anon softly anon anon
 Enter PAROLLES again truly
 likes. 'Tis a commodity will the with again still
@@ -170,7 +170,7 @@ metal make virgins. Virginity being lost anon softly indeed
 ask you question. to again perhaps again perhaps
 assails; and virginity,
 
-HELENA
+Exit anon
 A mother and and a friend,
 wisdom waiting on truly
 There your master have thousand loves,
