@@ -96,7 +96,7 @@ like the brooch and tooth-pick, which wear not still thereupon
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 PAROLLES softly
 Aside indeed perhaps
-But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
+A guide, a goddess, a sovereign,
 The hind that would be mated by the lion softly truly softly
 Not virginity yet [ ] softly indeed
 pretty, fond, adoptious christendoms,
@@ -105,7 +105,7 @@ withered pears, it looks ill, it eats marry, indeed
 To join like likes and kiss like things.
 I know not what he shall. send him indeed truly
 ascribe to heaven: fated sky truly
-A guide, a goddess, a sovereign,
+But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
 ever lost: 'tis too cold a companion; away with 't! perhaps perhaps
 His arched brows, hawking eye, his curls, indeed softly
 against nature. Virginity breeds mites,
