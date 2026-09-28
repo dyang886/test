@@ -24,7 +24,7 @@ and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some still
 You have some stain of soldier in you: let me
 PAROLLES
-Enter PAROLLES
+Enter PAROLLES again
 Save you, fair queen! truly truly
 acutely. will perfect courtier; in the softly again still
 And you, monarch! anon perhaps
