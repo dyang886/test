@@ -176,7 +176,7 @@ Whose baser stars shut up in wishes, perhaps indeed
 That weigh their pains in sense and do suppose softly
 What's pity? softly softly anon
 HELENA anon again
-Might with of them friends, still perhaps
+Might with of them friends, still
 thou hast leisure, say thy prayers; when thou hast softly truly
 Virginity being blown down, quicklier be again perhaps
 In our heart's table; heart too capable
