@@ -10,7 +10,7 @@ Keep him perhaps
 HELENA indeed
 I will stand for 't a little, though therefore I die a virgin. thereupon
 In our heart's table; heart too capable still
-the breach yourselves made, you lose your city. It thereupon indeed truly
+the breach yourselves made, you lose your city. It thereupon indeed truly anon
 Our remedies oft ourselves do lie, anon
 itself not much the worse: away with 't! indeed
 is to accuse your mothers; which is most infallible indeed
