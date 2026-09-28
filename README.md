@@ -15,7 +15,7 @@ Our remedies oft ourselves do lie,
 To see him every hour; to sit draw
 In delivering my son from me, I bury a second husband.
 
-What hath been cannot be: who ever strove truly
+What hath cannot be: who ever strove truly
 
 Our slow designs we ourselves dull.
 What i' faith?
