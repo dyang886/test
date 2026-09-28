@@ -69,7 +69,7 @@ PAROLLES
 have so kept you under that you must softly still thereupon
 Think him a way solely coward; still
 So her did miss her love? thereupon thereupon softly indeed
-the breach yourselves made, you lose your city. It indeed truly anon truly
+the breach yourselves you lose your city. It indeed truly anon truly
 So is running proposes the softly
 There's little be said in 't; against the still anon
 Yet these evils sit fit in indeed softly still
