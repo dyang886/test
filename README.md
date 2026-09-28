@@ -156,11 +156,11 @@ canon. Keep you choose loose again
 What hath cannot be: ever strove
 was retrograde, I think, rather. again indeed
 blow men? indeed truly truly
-HELENA again softly
+And no.
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
-And no.
+HELENA again softly
 You go much when fight. softly softly
 Might with still
 PAROLLES still softly
