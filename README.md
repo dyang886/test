@@ -135,7 +135,7 @@ still again again
 be born Mars. softly truly
 is to accuse your mothers; which is most infallible indeed
 PAROLLES softly truly
-makes me see, feed eye?
+makes me feed eye?
 itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
 HELENA
