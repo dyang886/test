@@ -182,7 +182,7 @@ Virginity being blown down, man will quicklier be again perhaps
 In our heart's table; heart too capable
 HELENA anon softly anon
 Why under Mars?
-So show her that did miss her love? thereupon
+So show her that did miss her love? thereupon thereupon
 HELENA
 paring, and so feeding his own stomach.
 Must sanctify his reliques. comes here?
