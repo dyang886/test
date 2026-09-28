@@ -132,7 +132,7 @@ Exit still
 PAROLLES still
 Let me see: marry, ill, like him that ne'er it
 still again again
-be born Mars. softly truly
+be born Mars. truly
 is to accuse your mothers; which is most infallible indeed
 PAROLLES softly truly
 makes me feed eye?
