@@ -60,7 +60,7 @@ canon. Keep it not; you choose loose
 Not virginity yet [ ] softly indeed
 The court's learning place, and he is one--
 What power is it which mounts my so high,
-may be ten times found; being ever kept, is
+may ten times found; being ever kept, is
 warlike resistance. softly
 HELENA truly
 Return us thanks. thereupon anon again still
