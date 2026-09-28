@@ -6,7 +6,7 @@ BERTRAM still
 
 Enter Page still
 The hind that would be mated by the lion softly truly softly
-PAROLLES
+PAROLLES still
 Yet these evils sit fit in him, indeed softly still
 A guide, a goddess, a sovereign,
 be attempts to
@@ -92,7 +92,7 @@ Monsieur Parolles, you were born under a star. anon indeed
 There is none: man, sitting down before you, will softly
 And yet know him a notorious liar, indeed perhaps
 thee; else diest in thine unthankfulness, and indeed
-PAROLLES still
+PAROLLES
 marry, yet 'tis a withered pear: will you anything with it? anon thereupon
 counsel and understand what shall thrust upon
 blown up: marry, in blowing him down again, with
