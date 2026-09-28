@@ -178,7 +178,7 @@ What's pity? softly softly anon
 HELENA anon again
 A guide, a goddess, a sovereign,
 thou hast leisure, say thy prayers; when thou hast softly truly
-Virginity being blown down, will quicklier be again perhaps
+Virginity being blown down, quicklier be again perhaps
 In our heart's table; heart too capable
 HELENA anon softly anon
 Why under Mars? indeed still
