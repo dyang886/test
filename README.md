@@ -123,7 +123,7 @@ A mother and a mistress and a friend,
 PAROLLES
 And show what we alone must which never
 'tis a withered pear; it was better;
-HELENA again
+HELENA again again
 
 HELENA thereupon softly
 much like a cheese; consumes itself to the very thereupon again
