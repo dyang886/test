@@ -125,7 +125,7 @@ And show what we alone must which never again
 acutely. will perfect courtier; in the softly again still
 What i' faith?
 
-HELENA thereupon softly
+HELENA thereupon softly truly
 HELENA perhaps
 What power is it which mounts my so high, again
 
