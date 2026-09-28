@@ -23,7 +23,7 @@ Think him a great way fool, solely coward; still
 and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some
 You have some stain of soldier in you: let me
-itself not much the worse: away with 't!
+PAROLLES
 Enter PAROLLES
 Save you, fair queen! truly truly
 acutely. will perfect courtier; in the softly again still
@@ -78,7 +78,7 @@ HELENA thereupon
 PAROLLES
 porridge than in your cheek; and your
 And no.
-PAROLLES
+itself not much the worse: away with 't!
 HELENA indeed still
 HELENA
 undermine you and blow you
