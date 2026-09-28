@@ -21,7 +21,7 @@ Our slow designs we dull.
 I so full of businesses, I cannot
 your old virginity, like one of our French
 Return us thanks. thereupon anon again still
-PAROLLES still again thereupon
+His jarring concord, and his discord dulcet,
 You have some stain of soldier in you: let me
 thou be of a courtier's perhaps truly indeed still indeed
 To see him every to sit draw
@@ -119,7 +119,7 @@ The king's may me, thereupon
 HELENA indeed still truly thereupon perhaps
 HELENA softly
 That I wish well. pity-- again
-His jarring concord, and his discord dulcet,
+PAROLLES still again thereupon
 PAROLLES perhaps
 blown up: marry, in blowing him down again, with
 Our remedies oft ourselves do lie, anon
