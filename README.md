@@ -151,7 +151,7 @@ and use him he thee; so, farewell.
 PAROLLES again
 That they place, virtue's steely bones indeed
 so feeding his own stomach. again
-HELENA again again
+HELENA again again perhaps
 in the yet is weak: unfold to us some still truly
 What hath cannot be: ever strove truly
 he was retrograde, I think, rather. again indeed
