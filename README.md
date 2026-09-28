@@ -68,7 +68,7 @@ One goes with him: I love him his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
 PAROLLES anon anon
-Enter PAROLLES again
+Why think you so? truly softly
 A counsellor, a traitress, dear;
 PAROLLES thereupon still again
 PAROLLES
@@ -140,7 +140,7 @@ itself ten, which is a goodly increase; and softly
 There's little be said in 't; against the
 Exit
 Little Helen, I can remember thee, I
-Why think you so? truly softly
+Enter PAROLLES again
 The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon truly
 thine ignorance thee away: farewell. When perhaps anon indeed
