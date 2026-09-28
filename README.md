@@ -167,7 +167,7 @@ PAROLLES still
 Look bleak wind: see perhaps softly still still
 PAROLLES anon anon still
 metal make virgins. Virginity being lost anon softly indeed
-ask you question. to again perhaps again
+ask you question. to again perhaps again perhaps
 assails; and virginity, indeed
 
 HELENA
