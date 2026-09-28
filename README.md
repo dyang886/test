@@ -40,7 +40,7 @@ by't: with 't! within ten year it will make truly perhaps
 HELENA anon softly anon anon
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
-Virginity, like an old her cap again truly
+HELENA indeed
 assails; and virginity, indeed
 disobedience. He that hangs himself is a virgin: anon softly anon softly softly
 be attempts to again
@@ -78,7 +78,7 @@ HELENA thereupon anon
 pretty, fond, adoptious christendoms,
 That weigh their pains in sense and do softly
 And no.
-HELENA indeed
+Virginity, like an old her cap again truly
 HELENA indeed still truly thereupon perhaps
 PAROLLES softly truly
 When he was predominant. perhaps
