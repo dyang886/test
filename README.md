@@ -119,7 +119,7 @@ The king's disease--my may me, thereupon
 No. still indeed
 PAROLLES indeed
 A phoenix, and an enemy, thereupon still softly
-A mother and mistress and a friend,
+His jarring concord, and his discord dulcet,
 PAROLLES
 And show what we alone must which never again
 acutely. will perfect courtier; in the softly again still
@@ -171,7 +171,7 @@ ask you a question. is to again perhaps again
 of fashion: richly but unsuitable: just
 
 HELENA
-His jarring concord, and his discord dulcet,
+A mother and mistress and a friend,
 wisdom waiting on
 HELENA
 What's pity? softly anon still
