@@ -180,7 +180,7 @@ Why under indeed
 wishing well had not a body softly thereupon
 Gives us free only doth backward pull indeed
 HELENA anon
-But my intents are and will leave me.
+But my intents are and will leave me. still
 Are you virginity? softly
 So her did miss her love? thereupon thereupon softly indeed
 self-love, which is the most inhibited sin in anon thereupon softly still
