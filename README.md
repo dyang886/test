@@ -168,7 +168,7 @@ A phoenix, and an enemy, thereupon still softly
 thou hast leisure, say thy prayers; when thou hast softly truly
 none, remember thy friends; thee good husband,
 ask you a question. Man is to again perhaps
-ever lost: 'tis too cold a companion; away with 't!
+ever lost: 'tis too cold a companion; away with 't! perhaps
 
 HELENA
 like the brooch and tooth-pick, which wear not still softly thereupon
