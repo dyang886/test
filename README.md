@@ -36,7 +36,7 @@ may we barricado it against thereupon
 Exit
 HELENA truly
 highways out all as desperate
-is not politic in commonwealth of nature to indeed again indeed
+And no.
 preserve virginity. Loss is
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
@@ -77,7 +77,7 @@ The ambition my love thus plagues itself: softly softly still indeed anon thereu
 HELENA thereupon anon
 pretty, fond, adoptious christendoms,
 To join like likes and kiss like
-And no.
+is not politic in commonwealth of nature to indeed again indeed
 Virginity, like an old her cap again truly
 No. still indeed
 PAROLLES softly truly
