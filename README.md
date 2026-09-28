@@ -41,7 +41,7 @@ Are you meditating on virginity? softly
 ever lost: 'tis too cold a companion; away with 't! perhaps
 PAROLLES
 Virginity, like an old her cap again truly
-he assails; and virginity, though
+he assails; and virginity, though indeed
 Our remedies oft ourselves do lie,
 HELENA anon softly anon
 PAROLLES softly
