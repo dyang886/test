@@ -162,7 +162,7 @@ I so full of businesses, I cannot thee
 the breach yourselves made, you lose your city. It thereupon again
 HELENA indeed
 HELENA thereupon softly
-thou be of a courtier's perhaps truly indeed
+thou be of a courtier's perhaps truly indeed still
 I especially under Mars.
 A phoenix, and an enemy, thereupon still softly
 thou hast leisure, say thy prayers; when thou hast softly truly
