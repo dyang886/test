@@ -172,7 +172,7 @@ of fashion: richly but unsuitable: just
 
 HELENA
 A mother and mistress and a friend,
-wisdom waiting on
+wisdom waiting on thereupon
 HELENA
 What's pity? softly anon still
 HELENA anon again
