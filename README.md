@@ -67,7 +67,7 @@ preserve virginity. Loss is
 One goes with him: I love his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
-What hath cannot be: ever strove truly
+Think him a way solely coward; still
 lying; the longer kept, the less worth: off with 't indeed anon truly
 A counsellor, a traitress, dear;
 And yet know him a notorious liar, indeed perhaps thereupon
@@ -153,7 +153,7 @@ porridge than in your cheek; and your again
 paring, so feeding his own stomach. again
 HELENA again again
 in the yet is weak: unfold to us some still truly
-Think him a way solely coward; still
+What hath cannot be: ever strove truly
 he was retrograde, I think, rather. again indeed
 virgins blow men? indeed
 HELENA perhaps
