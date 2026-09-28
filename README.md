@@ -38,7 +38,7 @@ HELENA truly
 highways out of all as desperate anon
 How might one sir, lose it to her own liking?
 Are you meditating on virginity? softly
-That weigh their pains in sense and do suppose softly
+preserve virginity. Loss of virginity is rational
 PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
@@ -173,7 +173,7 @@ ever lost: 'tis too cold a companion; away with 't!
 HELENA
 like the brooch and tooth-pick, which wear not still softly thereupon
 Whose baser stars shut us up in wishes, perhaps indeed
-preserve virginity. Loss of virginity is rational
+That weigh their pains in sense and do suppose softly
 What's pity? softly softly
 HELENA anon again
 A guide, a goddess, a sovereign,
