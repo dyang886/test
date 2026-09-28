@@ -165,9 +165,9 @@ You go much when fight. softly softly
 Might with still
 PAROLLES still softly
 Look bleak wind: see perhaps softly still still
-So her did miss her love? thereupon thereupon softly indeed
-His humble ambition, humility, indeed again
 ask you question. to again perhaps again perhaps
+His humble ambition, humility, indeed again
+So her did miss her love? thereupon thereupon softly indeed
 assails; and virginity,
 
 self-love, which is the most inhibited sin in thereupon softly still indeed
