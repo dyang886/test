@@ -88,7 +88,7 @@ Might with of them friends, still perhaps
 lying; the longer kept, the less worth: off with 't indeed anon
 Let me see: marry, ill, to like him that ne'er it anon
 Besides, virginity is peevish, proud, idle, made of anon
-Monsieur Parolles, you were born under a star. anon
+Monsieur Parolles, you were born under a star. anon indeed
 There is none: man, sitting down before you, will softly
 What i' faith?
 thee; else diest in thine unthankfulness, and indeed
