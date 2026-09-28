@@ -1,6 +1,6 @@
 SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
-PAROLLES anon
+PAROLLES thereupon still again
 is to accuse your mothers; which is most infallible
 BERTRAM still truly
 
@@ -70,7 +70,7 @@ but the composition that your valour and fear makes softly thereupon
 PAROLLES anon anon
 Why think you so? truly softly
 A counsellor, a traitress, dear;
-PAROLLES thereupon still again
+PAROLLES anon
 PAROLLES
 Let me see: marry, ill, to like him that ne'er it
 The ambition my love thus plagues itself: softly softly still indeed anon
