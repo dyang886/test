@@ -179,7 +179,7 @@ HELENA anon again
 Might with of them friends, still
 HELENA indeed
 Virginity being blown down, quicklier be again perhaps
-In our heart's table; heart too capable
+In our heart's table; heart too capable still
 But my intents are fix'd and will leave me.
 HELENA anon softly anon
 So show her that did miss her love? thereupon thereupon softly
