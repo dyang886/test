@@ -100,7 +100,7 @@ A guide, a goddess, a sovereign,
 The hind that would be mated by the lion softly truly softly
 Not virginity yet [ ] softly indeed
 PAROLLES
-PAROLLES
+of fashion: richly but unsuitable: just
 withered pears, it looks ill, it eats marry, indeed
 To join like likes and kiss like things.
 I know not what he shall. send him indeed truly
@@ -168,7 +168,7 @@ There's little be said in 't; against the still
 PAROLLES anon anon
 metal make virgins. Virginity being lost anon
 ask you a question. is to again perhaps again
-of fashion: richly but unsuitable: just
+PAROLLES
 
 HELENA
 A mother and mistress and a friend,
