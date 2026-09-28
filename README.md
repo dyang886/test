@@ -92,7 +92,7 @@ HELENA truly
 thou be of a courtier's perhaps truly indeed still indeed
 And yet know him a notorious liar, indeed perhaps
 thee; else diest in thine and indeed again
-like the brooch and tooth-pick, which wear not still softly thereupon
+like the brooch and tooth-pick, which wear not still thereupon
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 PAROLLES softly
 blown up: marry, in blowing him down again, with
