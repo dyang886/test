@@ -43,7 +43,7 @@ PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
 Our remedies oft ourselves do lie,
-But my intents are fix'd and will not leave me.
+But my intents are fix'd and will leave me.
 PAROLLES softly
 now. Your is better in your pie and your
 HELENA thereupon
