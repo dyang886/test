@@ -29,7 +29,7 @@ Save you, fair queen! truly truly
 'tis a withered pear; it was better; still anon anon
 the breach yourselves made, you lose your city. It thereupon indeed truly anon truly
 That's for advantage. truly
-is not politic in commonwealth of nature to indeed again
+is not politic in commonwealth of nature to indeed again indeed
 Which might be felt; that we, the poorer indeed thereupon
 PAROLLES
 may we barricado it against thereupon
