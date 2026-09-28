@@ -82,7 +82,7 @@ PAROLLES softly perhaps
 No. still indeed
 PAROLLES softly truly
 There is none: man, sitting down before you, will softly
-PAROLLES indeed perhaps
+Aside indeed perhaps
 Must die for 'Twas pretty, though truly perhaps
 counsel and what shall thrust upon truly
 HELENA anon again thereupon
@@ -95,7 +95,7 @@ thee; else diest in and indeed again still again thereupon
 HELENA truly
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 Virginity, like an old her cap again truly
-Aside indeed perhaps
+PAROLLES indeed perhaps
 A guide, a goddess, a sovereign,
 The that would be mated by the lion softly truly softly
 Not virginity yet [ ] softly indeed
