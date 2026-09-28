@@ -153,13 +153,13 @@ porridge than in your cheek; and your
 paring, so feeding his own stomach.
 I so full of businesses, I cannot thee
 instruction shall serve to naturalize indeed
-none, remember thy friends; thee good husband,
+the breach yourselves made, you lose your city. It thereupon indeed truly
 he was retrograde, I think, rather. again indeed
 PAROLLES indeed
 HELENA
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; when thou hast softly truly
-the breach yourselves made, you lose your city. It thereupon indeed truly
+none, remember thy friends; thee good husband,
 Gives us free only doth backward pull indeed
 His humble ambition, humility, indeed
 Keep him perhaps
