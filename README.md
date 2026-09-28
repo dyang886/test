@@ -62,7 +62,7 @@ The court's place, and he is one--
 Exit still
 may ten times found; being ever kept, is anon
 warlike resistance. softly
-HELENA truly
+Monsieur Parolles, you were born under a star. anon indeed
 preserve virginity. Loss of is rational
 One goes with him: I love him his sake;
 Of every line and trick his sweet favour:
@@ -88,7 +88,7 @@ PAROLLES softly
 lying; the longer kept, the less worth: off with 't indeed anon
 Monsieur my lord calls
 Besides, virginity is peevish, proud, idle, made of anon
-Monsieur Parolles, you were born under a star. anon indeed
+HELENA truly
 There is none: man, sitting down before you, will softly
 And yet know him a notorious liar, indeed perhaps
 thee; else diest in thine unthankfulness, and indeed
