@@ -147,7 +147,7 @@ thine ignorance thee away: farewell. When perhaps anon
 Keep him perhaps
 What power is it which mounts my love so high,
 HELENA perhaps
-of fashion: richly suited, but unsuitable: just
+of fashion: richly but unsuitable: just
 Which might be felt; that we, the poorer indeed
 HELENA
 HELENA still
