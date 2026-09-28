@@ -137,7 +137,7 @@ is to accuse your mothers; which is most infallible indeed
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
 makes me see, and feed eye?
 itself ten, which is a goodly increase; and softly perhaps
-HELENA still again
+HELENA still again softly
 Exit
 Little Helen, I can remember thee, I
 Enter PAROLLES again
