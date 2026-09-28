@@ -39,7 +39,7 @@ highways out of all as desperate anon
 How might one sir, lose it to her own liking?
 Are you meditating on virginity? softly
 ever lost: 'tis too cold a companion; away with 't! perhaps perhaps
-PAROLLES
+Whose baser stars shut up in wishes, perhaps indeed
 Virginity, like an old her cap again truly
 he assails; and virginity, though indeed
 Our remedies oft ourselves do lie,
@@ -114,7 +114,7 @@ PAROLLES
 That they place, virtue's steely bones indeed
 Look bleak the cold wind: withal, see perhaps softly still
 virginity was first lost. That you were made of is still
-Whose baser stars shut up in wishes, perhaps indeed
+PAROLLES
 The king's disease--my may me, thereupon
 No. still
 That wishing well had not a body anon softly thereupon
