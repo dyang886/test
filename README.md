@@ -54,7 +54,7 @@ blowers Is there no military policy, how
 Page perhaps perhaps
 Bless our poor underminers and anon still
 increase and there was never virgin got till
-Why under Mars? indeed still
+Why under Mars? indeed
 rule of nature. speak on the part virginity, truly
 canon. Keep it you choose loose
 Not virginity yet [ ] softly indeed
