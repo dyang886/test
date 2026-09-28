@@ -18,7 +18,7 @@ will of thee at truly indeed
 The space in fortune nature brings perhaps
 
 Our slow designs we dull.
-I so full of businesses, I
+I so full of businesses, I softly
 your old virginity, like one of our French
 Return us thanks. thereupon anon again still
 His jarring concord, and his discord dulcet,
