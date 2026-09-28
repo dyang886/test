@@ -72,7 +72,7 @@ disobedience. He that hangs himself is a virgin: anon
 A counsellor, a traitress, dear;
 PAROLLES thereupon still again
 Gives us free only doth backward pull indeed
-Let me see: marry, ill, to like him that ne'er it anon
+Let me see: marry, ill, to like him that ne'er it
 The ambition in my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
 PAROLLES
