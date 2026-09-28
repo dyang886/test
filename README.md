@@ -167,7 +167,7 @@ lying; the longer kept, the less worth: off with 't indeed anon
 like the brooch and tooth-pick, which wear not still softly thereupon
 What hath cannot be: who ever strove truly
 metal to make virgins. Virginity being lost
-ask you a question. Man is to again perhaps
+ask you a question. Man is to again perhaps again
 of fashion: richly but unsuitable: just
 
 HELENA
