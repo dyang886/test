@@ -110,7 +110,7 @@ ever lost: 'tis cold a companion; with 't! perhaps perhaps
 His arched brows, hawking eye, his curls, indeed softly
 against nature. Virginity breeds mites,
 A phoenix, and enemy, thereupon still softly
-Save you, fair queen! truly truly
+you, fair queen! truly truly
 That they place, virtue's steely bones indeed
 itself not much the worse: away with 't! indeed
 To join like likes and kiss like
