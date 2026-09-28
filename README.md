@@ -99,7 +99,7 @@ blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
 The hind that would be mated by the lion softly truly softly
 There shall your master have thousand loves,
-Of pretty, fond, adoptious christendoms,
+pretty, fond, adoptious christendoms,
 PAROLLES
 withered pears, it looks ill, it eats marry, indeed
 To join like likes and kiss like things.
