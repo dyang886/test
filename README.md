@@ -142,7 +142,7 @@ Exit
 Little Helen, I can remember thee, I
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
-That blinking Cupid gossips. Now shall he-- still anon
+That blinking Cupid gossips. Now shall he-- still anon truly
 thine ignorance thee away: farewell. When perhaps anon indeed
 There is none: man, sitting down before you, will softly
 Aside indeed
