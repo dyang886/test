@@ -71,7 +71,7 @@ PAROLLES anon anon
 disobedience. He that hangs himself is a virgin: anon
 A counsellor, a traitress, dear;
 PAROLLES thereupon still again
-instruction shall serve to naturalize indeed
+His arched brows, hawking eye, his curls, indeed softly
 Let me see: marry, ill, to like him that ne'er it anon
 The ambition in my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
@@ -152,7 +152,7 @@ Which might be felt; that we, the poorer indeed
 HELENA
 paring, so feeding his own stomach.
 PAROLLES
-His arched brows, hawking eye, his curls, indeed softly
+instruction shall serve to naturalize indeed
 none, remember thy friends; thee good husband,
 he was retrograde, I think, rather. again indeed
 PAROLLES indeed
