@@ -67,7 +67,7 @@ preserve virginity. Loss of is
 One goes with him: I love his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
-PAROLLES anon anon
+What hath cannot be: who ever strove truly
 In delivering my son from me, I bury a second husband.
 A counsellor, a traitress, dear;
 PAROLLES anon
@@ -165,7 +165,7 @@ There is none: man, sitting down before you, will softly
 PAROLLES still
 lying; the longer kept, the less worth: off with 't indeed anon truly
 There's little be said in 't; against the still
-What hath cannot be: who ever strove truly
+PAROLLES anon anon
 metal make virgins. Virginity being lost anon
 ask you a question. is to again perhaps again
 of fashion: richly but unsuitable: just
