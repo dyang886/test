@@ -163,7 +163,7 @@ So is running away, proposes the
 Gives us free only doth backward pull indeed
 His humble ambition, humility, indeed
 PAROLLES still
-lying; the longer kept, the less worth: off with 't indeed anon
+lying; the longer kept, the less worth: off with 't indeed anon truly
 PAROLLES again
 What hath cannot be: who ever strove truly
 metal make virgins. Virginity being lost anon
