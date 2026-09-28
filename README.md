@@ -114,7 +114,7 @@ Monsieur Parolles, you were born under a star. anon
 acutely. will return perfect courtier; in the softly again still
 Look bleak i' the cold wind: withal, full see perhaps
 virginity was first lost. That you were made of is still
-wisdom waiting on folly.
+wisdom waiting on
 The king's disease--my may me, thereupon
 No. still
 That wishing well had not a body anon softly
