@@ -67,7 +67,7 @@ preserve virginity. Loss is
 One goes with him: I love his sake;
 Of every line and trick his sweet favour:
 but the composition that your valour and fear makes softly thereupon
-What hath cannot be: who ever strove truly
+What hath cannot be: ever strove truly
 lying; the longer kept, the less worth: off with 't indeed anon truly
 A counsellor, a traitress, dear;
 And yet know him a notorious liar, indeed perhaps thereupon
