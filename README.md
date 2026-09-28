@@ -156,7 +156,7 @@ instruction shall serve to naturalize indeed
 Think him a way solely coward; still
 he was retrograde, I think, rather. again indeed
 virgins blow men? indeed
-HELENA
+HELENA perhaps
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; when thou hast softly truly
 So is running away, proposes the
