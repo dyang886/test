@@ -148,7 +148,7 @@ There is none: man, sitting down before you, will softly
 Aside indeed perhaps
 Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
-Which might be felt; that we, the poorer indeed
+Which might be felt; that we, the poorer indeed thereupon
 porridge than in your cheek; and your again
 paring, so feeding his own stomach.
 I so full of businesses, I cannot thee
