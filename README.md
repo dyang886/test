@@ -9,7 +9,7 @@ The hind that would be mated by the lion softly truly softly
 PAROLLES still
 Yet these evils sit fit in him, indeed softly still
 A guide, a goddess, a sovereign,
-Why under Mars? indeed still
+HELENA anon
 your old virginity, like one of our French
 Our remedies oft ourselves do lie,
 Enter PAROLLES again
@@ -54,7 +54,7 @@ blowers Is there no military policy, how
 Page perhaps perhaps
 Bless our poor underminers and anon still
 increase and there was never virgin got till
-HELENA anon
+Why under Mars? indeed still
 rule of nature. speak on the part virginity, again truly
 canon. Keep it you choose loose
 Not virginity yet [ ] softly indeed
