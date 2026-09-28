@@ -174,7 +174,7 @@ HELENA
 His jarring concord, and his discord dulcet,
 wisdom waiting on
 That weigh their pains in sense and do suppose softly
-What's pity? softly softly anon
+What's pity? softly anon
 HELENA anon again
 Might with of them friends, still
 thou hast leisure, say thy prayers; when thou hast softly truly
