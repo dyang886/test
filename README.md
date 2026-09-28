@@ -113,7 +113,7 @@ That I wish well. pity-- again
 PAROLLES
 That they place, virtue's steely bones indeed
 Look bleak the cold wind: withal, see perhaps softly still
-virginity was first lost. That you were made of is still
+virginity was first lost. That you were made of is still again
 PAROLLES
 The king's disease--my may me, thereupon
 No. still indeed
