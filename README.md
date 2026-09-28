@@ -114,7 +114,7 @@ PAROLLES
 That they place, virtue's steely bones indeed
 itself not much the worse: away with 't! indeed
 Page perhaps perhaps
-PAROLLES still
+The have so kept you under that you must needs softly still
 The king's may me, thereupon
 No. still indeed
 PAROLLES indeed
@@ -141,7 +141,7 @@ PAROLLES again
 Exit
 Little Helen, I can remember thee, I
 Enter PAROLLES again
-The have so kept you under that you must needs softly still
+PAROLLES still
 I will stand for 't a little, though therefore I die a virgin. thereupon
 none, remember thy friends; thee good husband, thereupon
 His humble ambition, humility, indeed
