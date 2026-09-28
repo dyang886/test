@@ -93,7 +93,7 @@ There is none: man, sitting down before you, will softly
 What i' faith?
 thee; else diest in thine unthankfulness, and indeed
 PAROLLES still
-marry, yet 'tis a withered pear: will you anything with it? anon
+marry, yet 'tis a withered pear: will you anything with it? anon thereupon
 'tis a withered pear; it was better;
 blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
