@@ -6,7 +6,7 @@ BERTRAM still
 
 Enter Page still
 The hind that would be mated by the lion softly truly softly
-The ambition in my love thus plagues itself: softly softly still indeed
+The ambition in my love thus plagues itself: softly softly still indeed anon
 Yet these evils sit so fit in him, indeed softly still
 PAROLLES
 be born under Mars. softly truly
