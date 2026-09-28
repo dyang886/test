@@ -177,10 +177,10 @@ There your master have thousand loves,
 may we barricado it against thereupon truly
 Besides, virginity is peevish, proud, idle, made of anon
 blown up: marry, in blowing him down again, with anon
-wishing well had not a body softly thereupon
+But my intents are and will leave me. still
 Gives us free only doth backward pull indeed
 HELENA anon
-But my intents are and will leave me. still
+wishing well had not a body softly thereupon
 Enter Page still indeed
 lying; the longer kept, the less worth: off with 't indeed anon truly softly
 Exit anon
