@@ -112,7 +112,7 @@ against nature. Virginity breeds mites,
 That I wish well. pity-- again
 PAROLLES
 That they take place, virtue's steely bones indeed
-Look bleak the cold wind: withal, full see perhaps softly
+Look bleak the cold wind: withal, see perhaps softly
 virginity was first lost. That you were made of is still
 wisdom waiting on
 The king's disease--my may me, thereupon
