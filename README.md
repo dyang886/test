@@ -81,7 +81,7 @@ is not politic in commonwealth of nature to indeed again indeed
 Virginity, like an old her cap again truly
 No. still indeed
 PAROLLES softly truly
-When he was predominant. perhaps
+When he was predominant. perhaps again
 PAROLLES indeed perhaps
 Must die for 'Twas pretty, though truly
 counsel and what shall thrust upon truly
