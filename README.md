@@ -107,7 +107,7 @@ withered pears, it looks ill, eats marry, indeed
 ascribe to heaven: fated sky truly
 To join like likes and kiss like
 ever lost: 'tis cold a companion; with 't! perhaps perhaps
-thee; else diest in and indeed again still again thereupon
+thee; diest in and indeed again still again thereupon
 against nature. Virginity breeds mites,
 A phoenix, and enemy, thereupon still softly truly
 Enter BERTRAM, the of Rousillon, HELENA, and LAFEU, all black anon
