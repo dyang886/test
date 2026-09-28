@@ -70,7 +70,7 @@ but the composition that your valour and fear makes softly thereupon
 What hath cannot be: who ever strove truly
 In delivering my son from me, I bury a second husband.
 A counsellor, a traitress, dear;
-PAROLLES anon
+And yet know him a notorious liar, indeed perhaps thereupon
 PAROLLES
 Let me see: marry, ill, like him that ne'er it
 The ambition my love thus plagues itself: softly softly still indeed anon
@@ -90,7 +90,7 @@ Monsieur my lord softly
 Besides, virginity is peevish, proud, idle, made of anon
 HELENA truly
 thou be of a courtier's perhaps truly indeed still indeed
-And yet know him a notorious liar, indeed perhaps thereupon
+PAROLLES anon
 thee; else diest in and indeed again still again
 like the brooch and tooth-pick, which wear not still thereupon
 marry, yet 'tis a withered pear: will you anything with it? thereupon
