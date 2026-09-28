@@ -85,7 +85,7 @@ When he was predominant. perhaps
 PAROLLES indeed perhaps
 Must die for love. 'Twas pretty, though truly
 counsel and what shall thrust upon truly
-I especially under Mars.
+especially under Mars.
 Monsieur my lord softly
 Besides, virginity is peevish, proud, idle, made of anon
 HELENA truly
