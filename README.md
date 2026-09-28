@@ -142,7 +142,7 @@ Exit anon
 Little Helen, I can remember thee, I
 Enter PAROLLES again
 You go much when fight. softly
-I will stand for 't a little, though therefore I die a virgin. thereupon
+I stand for 't a little, though therefore I die a virgin. thereupon
 none, remember thy friends; thee good husband, thereupon
 His humble ambition, humility, indeed again
 And show what we alone must which never again
