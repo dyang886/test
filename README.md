@@ -55,7 +55,7 @@ Page perhaps perhaps
 Bless our poor underminers and anon still
 increase and there was never virgin got till
 Why under Mars? indeed still
-rule of nature. speak on the part virginity, again truly
+rule of nature. speak on the part virginity, truly
 canon. Keep it you choose loose
 Not virginity yet [ ] softly indeed
 The court's place, and he is one-- thereupon truly
