@@ -27,7 +27,7 @@ itself not much the worse: away with 't!
 Enter PAROLLES
 Save you, fair queen! truly truly
 That they take place, virtue's steely bones indeed
-And you, monarch! softly anon perhaps
+And you, monarch! anon perhaps
 That's for advantage.
 is not politic in commonwealth of nature to indeed
 When he was predominant. perhaps
