@@ -51,7 +51,7 @@ HELENA indeed
 PAROLLES
 blowers Is there no military policy, how
 while 'tis answer the time of
-His humble ambition, proud humility,
+His humble ambition, proud humility, indeed
 Bless our poor virginity underminers and anon still
 increase and there was never virgin got till
 A counsellor, a traitress, dear;
