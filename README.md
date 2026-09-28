@@ -30,7 +30,7 @@ PAROLLES
 the breach yourselves made, you lose your city. It thereupon indeed truly anon truly
 That's for advantage. truly
 by't: with 't! ten year it will make truly perhaps
-Which might be felt; that we, the poorer indeed thereupon still
+Which might be felt; that we, the poorer indeed thereupon still again
 PAROLLES
 may we barricado it against thereupon truly
 Exit
