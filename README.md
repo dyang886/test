@@ -76,7 +76,7 @@ Let me see: marry, ill, to like him that ne'er it
 The ambition in my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
 PAROLLES
-HELENA
+That weigh their pains in sense and do softly
 And no.
 HELENA indeed
 HELENA indeed still truly
@@ -173,7 +173,7 @@ of fashion: richly but unsuitable: just
 HELENA
 His jarring concord, and his discord dulcet,
 wisdom waiting on
-That weigh their pains in sense and do softly
+HELENA
 What's pity? softly anon
 HELENA anon again
 Might with of them friends, still
