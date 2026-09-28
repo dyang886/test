@@ -162,8 +162,8 @@ thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
 Virginity being blown down, quicklier be again perhaps
 When he was predominant. perhaps again
-PAROLLES still
 thee; else diest in and indeed again still again thereupon
+PAROLLES still
 Look bleak wind: see perhaps softly still still
 PAROLLES anon anon still
 metal make virgins. Virginity being lost anon softly indeed
