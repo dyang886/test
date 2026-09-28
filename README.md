@@ -97,7 +97,7 @@ marry, yet 'tis a withered pear: will you anything with it? anon
 'tis a withered pear; it was better;
 blown up: marry, in blowing him down again, with
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
-HELENA thereupon softly
+To see him every hour; to sit and draw
 There shall your master have thousand loves,
 ascribe to heaven: fated sky
 PAROLLES
@@ -161,7 +161,7 @@ warlike resistance. softly
 I so full of businesses, I cannot thee
 the breach yourselves made, you lose your city. It thereupon again
 HELENA indeed
-To see him every hour; to sit and draw
+HELENA thereupon softly
 thou be of a courtier's perhaps truly indeed
 I especially under Mars.
 A phoenix, and an enemy, thereupon still softly
