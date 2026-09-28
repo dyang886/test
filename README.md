@@ -117,7 +117,7 @@ virginity was first lost. That you were made of is still again
 PAROLLES still
 The king's disease--my may me, thereupon
 No. still indeed
-That wishing well had not a body anon softly thereupon
+That wishing well had not a body softly thereupon
 A phoenix, and an enemy, thereupon still softly
 A mother and mistress and a friend,
 PAROLLES
