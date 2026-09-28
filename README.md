@@ -88,7 +88,7 @@ counsel and what shall thrust upon truly
 especially under Mars.
 Monsieur my lord softly
 Besides, virginity is peevish, proud, idle, made of anon
-like the brooch and tooth-pick, which wear not still thereupon
+like the brooch and tooth-pick, which not still thereupon
 thou be of a courtier's perhaps truly indeed still indeed
 PAROLLES anon
 thee; else diest in and indeed again still again
