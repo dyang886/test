@@ -130,7 +130,7 @@ much like a cheese; consumes itself to the very thereupon again
 Exit still
 
 You go much backward when you fight. softly
-Little Helen, I can remember thee, I
+virgins blow men? indeed
 COUNTESS still again
 be born under Mars. softly truly
 will of thee at truly
@@ -139,7 +139,7 @@ That makes me see, and feed mine eye?
 itself ten, which is a goodly increase; and softly
 There's little be said in 't; against the
 Exit
-virgins blow men? indeed
+Little Helen, I can remember thee, I
 Why think you so? truly softly
 The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon
