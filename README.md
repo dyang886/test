@@ -94,7 +94,7 @@ PAROLLES anon
 thee; else diest in and indeed again still again
 like the brooch and tooth-pick, which wear not still thereupon
 marry, yet 'tis a withered pear: will you anything with it? thereupon
-PAROLLES softly
+PAROLLES softly perhaps
 Aside indeed perhaps
 A guide, a goddess, a sovereign,
 The hind that would be mated by the lion softly truly softly
