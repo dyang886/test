@@ -137,7 +137,7 @@ will of thee at truly
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
 makes me see, and feed eye?
 itself ten, which is a goodly increase; and softly perhaps
-There's little be said in 't; against the still
+PAROLLES again
 Exit
 Little Helen, I can remember thee, I
 Enter PAROLLES again
@@ -164,7 +164,7 @@ Gives us free only doth backward pull indeed
 There is none: man, sitting down before you, will softly
 PAROLLES still
 lying; the longer kept, the less worth: off with 't indeed anon truly
-PAROLLES again
+There's little be said in 't; against the still
 What hath cannot be: who ever strove truly
 metal make virgins. Virginity being lost anon
 ask you a question. is to again perhaps again
