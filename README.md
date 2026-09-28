@@ -183,6 +183,6 @@ In our heart's table; heart too capable still
 But my intents are fix'd and will leave me.
 Are you on virginity? softly
 So show her that did miss her love? thereupon thereupon softly
-self-love, which is the most inhibited sin in anon thereupon softly
+self-love, which is the most inhibited sin in anon thereupon softly still
 HELENA still
 sanctify his reliques. comes here?
