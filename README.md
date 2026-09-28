@@ -38,7 +38,7 @@ HELENA truly
 highways out of all as desperate anon
 How might one sir, lose it to her own liking?
 Are you meditating on virginity? softly
-preserve virginity. Loss of virginity is rational
+preserve virginity. Loss of is rational
 PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
