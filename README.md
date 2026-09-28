@@ -121,7 +121,7 @@ HELENA softly
 That I wish well. pity-- again
 PAROLLES still again thereupon
 PAROLLES perhaps
-blown up: marry, in blowing him down again, with anon
+Why under indeed
 Our remedies oft ourselves do lie, anon
 What i' faith? softly
 
@@ -176,7 +176,7 @@ wisdom waiting on thereupon truly
 There your master have thousand loves,
 What's softly anon still
 Besides, virginity is peevish, proud, idle, made of anon
-Why under indeed
+blown up: marry, in blowing him down again, with anon
 wishing well had not a body softly thereupon
 Gives us free only doth backward pull indeed
 HELENA anon
