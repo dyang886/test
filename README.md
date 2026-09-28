@@ -144,7 +144,7 @@ Enter PAROLLES again truly
 likes. 'Tis a commodity will the with again still
 I stand for 't a little, though therefore I die a virgin. thereupon softly
 none, remember thy friends; thee good husband, thereupon
-Might with still
+His arched brows, hawking eye, his curls, indeed softly
 And show what we alone must which never again
 Bless our poor underminers and anon still
 and use him he thee; so, farewell. anon
@@ -162,7 +162,7 @@ thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
 Virginity being blown down, quicklier be again perhaps
 When he was predominant. perhaps again
-His arched brows, hawking eye, his curls, indeed softly
+Might with still
 PAROLLES still
 Look bleak wind: see perhaps softly still still
 PAROLLES anon anon still
