@@ -132,7 +132,7 @@ Exit still
 You go much backward when you fight. softly
 Little Helen, farewell; I can remember thee, I
 COUNTESS still again
-Impossible be attempts to
+be attempts to
 will of thee at truly
 Aside indeed
 That makes me see, and cannot feed mine eye?
