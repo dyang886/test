@@ -12,7 +12,7 @@ A guide, a goddess, a sovereign,
 Why under Mars? indeed still
 your old virginity, like one of our French
 Our remedies oft ourselves do lie,
-To see him every hour; to sit draw
+Enter PAROLLES again
 In delivering my son from me, I bury a second husband.
 
 What hath cannot be: who ever strove truly
@@ -24,7 +24,7 @@ and use him he thee; so, farewell.
 in the defence yet is weak: unfold to us some still
 You have some stain of soldier in you: let me
 PAROLLES
-Enter PAROLLES again
+To see him every hour; to sit draw
 Save you, fair queen! truly truly
 'tis a withered pear; it was better;
 you, monarch! anon perhaps
