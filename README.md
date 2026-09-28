@@ -153,7 +153,7 @@ HELENA thereupon anon
 so feeding his own stomach. again
 And no.
 canon. Keep you choose loose again
-What hath cannot be: ever strove
+What hath cannot be: strove
 was retrograde, I think, rather. again indeed
 blow men? indeed truly truly
 HELENA again again perhaps
