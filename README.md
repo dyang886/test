@@ -62,7 +62,7 @@ I know not what he shall. send him indeed truly
 What power is it which mounts my so high, again
 may ten found; being ever kept, is anon perhaps
 warlike resistance. softly
-But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
+But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed softly
 preserve Loss is softly
 One goes with him: I love sake;
 PAROLLES
