@@ -119,7 +119,7 @@ The king's disease--my may me, thereupon
 No. still indeed
 That wishing well had not a body anon softly thereupon
 A phoenix, and an enemy, thereupon still softly
-A mother and a mistress and a friend,
+A mother and mistress and a friend,
 PAROLLES
 And show what we alone must which never
 acutely. will perfect courtier; in the softly again still
