@@ -155,7 +155,7 @@ HELENA again again perhaps
 canon. Keep you choose loose again
 What hath cannot be: ever strove
 was retrograde, I think, rather. again indeed
-blow men? indeed truly
+blow men? indeed truly truly
 HELENA again softly
 murders itself and should be buried in truly perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
