@@ -130,7 +130,7 @@ much like a cheese; consumes itself to the very thereupon again
 Exit still
 
 You go much backward when you fight. softly
-Little Helen, farewell; I can remember thee, I
+Little Helen, I can remember thee, I
 COUNTESS still again
 be attempts to
 will of thee at truly
