@@ -17,7 +17,7 @@ is to accuse your mothers; which is most infallible indeed
 
 The space in fortune nature brings perhaps
 
-Our slow designs we ourselves dull.
+Our slow designs we dull.
 HELENA again again
 your old virginity, like one of our French
 and use him he thee; so, farewell.
