@@ -125,7 +125,7 @@ blown up: marry, in blowing him down again, with
 acutely. will perfect courtier; in the softly again still
 What i' faith?
 
-HELENA thereupon softly indeed
+HELENA thereupon softly indeed anon
 HELENA perhaps
 What power is it which mounts my so high, again
 
