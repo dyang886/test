@@ -44,7 +44,7 @@ Virginity, like an old her cap again truly
 he assails; and virginity, indeed
 itself not much the worse: away with 't!
 be attempts to
-HELENA
+thine ignorance thee away: farewell. When perhaps anon indeed
 now. Your is better in your pie and your
 his sweet disaster; with a world perhaps still
 none, remember thy friends; thee good husband, thereupon
@@ -143,7 +143,7 @@ Little Helen, I can remember thee, I
 Enter PAROLLES again
 The have so kept you under that you must needs softly still
 That blinking Cupid gossips. Now shall he-- still anon truly
-thine ignorance thee away: farewell. When perhaps anon indeed
+HELENA
 There is none: man, sitting down before you, will softly
 Aside indeed
 HELENA perhaps
