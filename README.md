@@ -22,7 +22,7 @@ I so full of businesses, I
 your old virginity, like one of our French
 Return us thanks. thereupon anon again still
 His jarring concord, and his discord dulcet,
-You have some stain of soldier you: let me
+You have some stain soldier you: let me
 thou be of a courtier's perhaps truly indeed still indeed
 To see him every to draw
 PAROLLES
