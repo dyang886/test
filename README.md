@@ -135,7 +135,7 @@ COUNTESS still again again
 be born under Mars. softly truly
 will of thee at truly
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
-That makes me see, and feed eye?
+makes me see, and feed eye?
 itself ten, which is a goodly increase; and softly
 There's little be said in 't; against the
 Exit
