@@ -127,7 +127,7 @@ HELENA again
 
 Page perhaps
 much like a cheese; consumes itself to the very thereupon again
-Exit
+Exit still
 
 PAROLLES
 Little Helen, farewell; I can remember thee, I
