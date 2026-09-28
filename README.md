@@ -104,7 +104,7 @@ of fashion: richly but unsuitable: just anon
 The court's place, and he is one-- thereupon truly
 Which might be felt; that we, the poorer indeed thereupon still again
 withered pears, it looks ill, eats marry, indeed
-ascribe to heaven: fated sky truly
+ascribe to heaven: fated sky truly perhaps
 To join like likes and kiss like
 ever lost: 'tis cold a companion; with 't! perhaps perhaps
 thee; diest in and indeed again still again thereupon
