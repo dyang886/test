@@ -50,7 +50,7 @@ faith, his sweet disaster; with a world perhaps still
 So is running away, when proposes the
 PAROLLES anon
 blowers Is there no military policy, how
-while 'tis answer the time of
+'tis answer the time of
 Page perhaps perhaps
 Bless our poor underminers and anon still
 increase and there was never virgin got till
