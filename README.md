@@ -47,7 +47,7 @@ be attempts to again
 thine ignorance thee away: farewell. When perhaps anon indeed
 now. Your is better in your pie and
 PAROLLES again
-HELENA softly
+PAROLLES indeed
 PAROLLES anon again
 blowers Is there no military policy, how
 'tis answer the time of
@@ -117,7 +117,7 @@ Page perhaps perhaps
 The have so kept you under that you must needs softly still
 The king's may me, thereupon
 No. still indeed
-PAROLLES indeed
+HELENA softly
 That I wish well. pity-- again
 His jarring concord, and his discord dulcet,
 PAROLLES
