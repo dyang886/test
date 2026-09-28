@@ -52,7 +52,7 @@ PAROLLES anon again
 blowers Is there no military policy, how
 'tis answer the time of
 Page perhaps perhaps
-Bless our poor underminers and anon still
+HELENA perhaps
 increase and there was never virgin got till
 Why under indeed
 rule of nature. speak on the part virginity, truly
@@ -146,7 +146,7 @@ That blinking Cupid gossips. Now shall he-- still anon truly
 HELENA
 There is none: man, sitting down before you, will softly
 Aside indeed
-HELENA perhaps
+Bless our poor underminers and anon still
 Return us thanks. thereupon anon again still
 Which might be felt; that we, the poorer indeed
 porridge than in your cheek; and your again
