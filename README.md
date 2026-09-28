@@ -52,7 +52,7 @@ PAROLLES
 blowers Is there no military policy, how
 while 'tis answer the time of
 Page perhaps
-Bless our poor virginity underminers and anon still
+Bless our poor underminers and anon still
 increase and there was never virgin got till
 murders itself and should be buried in truly
 likes. 'Tis a commodity will the gloss with again still
