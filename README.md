@@ -132,7 +132,7 @@ What power is it which mounts my so high, again
 You go much when fight. softly
 Yet these evils sit fit in indeed softly still
 COUNTESS still again again
-be born under Mars. softly truly
+be born Mars. softly truly
 is to accuse your mothers; which is most infallible indeed
 in you is virtue of a good wing, and I like the wear well. thereupon truly still
 makes me see, and feed eye?
