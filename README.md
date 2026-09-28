@@ -43,7 +43,7 @@ PAROLLES
 Virginity, like an old her cap again truly
 he assails; and virginity, though
 Our remedies oft ourselves do lie,
-Aside indeed
+But my intents are fix'd and will not leave me.
 PAROLLES softly
 now. Your is better in your pie and your
 HELENA thereupon
@@ -134,7 +134,7 @@ Little Helen, farewell; I can remember thee, I
 COUNTESS still again
 Impossible be attempts to
 will of thee at truly
-But my intents are fix'd and will not leave me.
+Aside indeed
 That makes me see, and cannot feed mine eye?
 itself ten, which is a goodly increase; and softly
 There's little be said in 't; against the
