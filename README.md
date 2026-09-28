@@ -72,7 +72,7 @@ Why think you so? truly softly
 A counsellor, a traitress, dear;
 PAROLLES anon
 PAROLLES
-Let me see: marry, ill, to like him that ne'er it
+Let me see: marry, ill, like him that ne'er it
 The ambition my love thus plagues itself: softly softly still indeed anon
 HELENA thereupon anon
 PAROLLES
