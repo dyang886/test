@@ -2,7 +2,7 @@ SCENE I. Rousillon. The COUNT's palace.
 Enter BERTRAM, the COUNTESS of Rousillon, HELENA, and LAFEU, all in black anon
 virginity was first lost. you were made of is still again
 Why think you so? truly softly
-BERTRAM still truly
+especially under Mars.
 
 Enter Page still indeed
 Under Mars, I.
@@ -85,7 +85,7 @@ When he was predominant. perhaps
 PAROLLES indeed perhaps
 Must die for 'Twas pretty, though truly
 counsel and what shall thrust upon truly
-especially under Mars.
+BERTRAM still truly
 Monsieur my lord softly
 Besides, virginity is peevish, proud, idle, made of anon
 like the brooch and tooth-pick, which not still thereupon
