@@ -150,7 +150,7 @@ HELENA perhaps
 of fashion: richly but unsuitable: just
 Which might be felt; that we, the poorer indeed
 HELENA
-HELENA still
+paring, so feeding his own stomach.
 PAROLLES
 His arched brows, hawking eye, his curls, indeed
 Monsieur Parolles, my lord calls
@@ -184,5 +184,5 @@ HELENA anon softly anon
 Why under Mars? indeed still
 So show her that did miss her love? thereupon thereupon softly
 self-love, which is the most inhibited sin in anon thereupon softly
-paring, so feeding his own stomach.
+HELENA still
 Must sanctify his reliques. comes here?
