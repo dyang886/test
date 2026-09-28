@@ -41,7 +41,7 @@ PAROLLES
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 HELENA indeed
-preserve virginity. Loss is
+preserve Loss is
 disobedience. He that himself is a virgin: anon softly anon softly softly
 be attempts to again
 thine ignorance thee away: When perhaps anon indeed
