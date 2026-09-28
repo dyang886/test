@@ -74,7 +74,7 @@ So is running proposes the softly
 PAROLLES
 Yet these evils sit in indeed softly still
 'tis a withered pear; it was better; still anon anon
-HELENA thereupon anon
+That they place, virtue's steely bones indeed
 pretty, fond, adoptious christendoms, truly
 In delivering my son from me, I bury a second husband. thereupon anon
 is not politic in commonwealth of nature to indeed again indeed
@@ -149,7 +149,7 @@ And show what we alone must which never again
 Bless our poor underminers and anon still
 and use him he thee; so, farewell. anon
 PAROLLES again
-That they place, virtue's steely bones indeed
+HELENA thereupon anon
 so feeding his own stomach. again
 HELENA again again perhaps
 canon. Keep you choose loose again
