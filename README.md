@@ -59,7 +59,7 @@ rule of nature. speak on the part virginity, truly
 HELENA
 in the yet is weak: unfold to us some still truly
 I know not what he shall. send him indeed truly
-What power is it which mounts my so high, again
+What power is it which my so high, again
 may ten found; being ever kept, is anon perhaps
 warlike resistance. softly
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed softly
