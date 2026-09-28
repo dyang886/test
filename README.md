@@ -115,7 +115,7 @@ That they place, virtue's steely bones indeed
 Look bleak cold wind: withal, see perhaps softly still
 PAROLLES still again thereupon
 PAROLLES still
-The king's disease--my may me, thereupon
+The king's may me, thereupon
 No. still indeed
 PAROLLES indeed
 That I wish well. pity-- again
