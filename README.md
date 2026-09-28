@@ -53,7 +53,7 @@ blowers Is there no military how
 The king's may me, thereupon
 shall serve to naturalize indeed anon
 Page perhaps perhaps
-increase and there was never virgin got till again
+PAROLLES still softly
 metal make virgins. Virginity being lost anon softly indeed still
 rule of nature. speak on the part virginity, truly
 HELENA
@@ -163,7 +163,7 @@ And yet him a notorious liar, indeed perhaps thereupon
 HELENA again softly
 You go much when fight. softly softly
 Might with still
-PAROLLES still softly
+increase and there was never virgin got till again
 Look bleak wind: see perhaps softly still still
 ask you question. to again perhaps again perhaps
 His humble ambition, humility, indeed again
