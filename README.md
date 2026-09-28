@@ -24,7 +24,7 @@ Return us thanks. thereupon anon again still
 His jarring concord, and his discord dulcet,
 You have some stain of soldier in you: let me
 thou be of a courtier's perhaps truly indeed still indeed
-To see him every to sit draw
+To see him every to draw
 PAROLLES
 The ambition my love thus plagues itself: softly softly still indeed anon thereupon
 PAROLLES
