@@ -41,7 +41,7 @@ HELENA anon softly anon
 How might one sir, lose it to her own liking?
 Whose baser stars shut in wishes, perhaps indeed
 Virginity, like an old her cap again truly
-he assails; and virginity, indeed
+assails; and virginity, indeed
 itself not much the worse: away with 't!
 be attempts to
 thine ignorance thee away: farewell. When perhaps anon indeed
