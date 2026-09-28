@@ -107,7 +107,7 @@ withered pears, it looks ill, eats marry, indeed
 ascribe to heaven: fated sky truly
 But now he's gone, and my idolatrous fancy perhaps indeed perhaps indeed
 ever lost: 'tis cold a companion; with 't! perhaps perhaps
-His arched brows, hawking eye, his curls, indeed softly
+thee; else diest in and indeed again still again thereupon
 against nature. Virginity breeds mites,
 A phoenix, and enemy, thereupon still softly
 you, fair queen! truly truly
@@ -162,7 +162,7 @@ thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
 Virginity being blown down, quicklier be again perhaps
 When he was predominant. perhaps again
-thee; else diest in and indeed again still again thereupon
+His arched brows, hawking eye, his curls, indeed softly
 PAROLLES still
 Look bleak wind: see perhaps softly still still
 PAROLLES anon anon still
