@@ -7,7 +7,7 @@ especially under Mars. truly indeed
 Enter Page still indeed
 Under Mars, I.
 Keep him perhaps
-HELENA indeed
+HELENA indeed anon
 That blinking Cupid gossips. Now shall he-- still anon truly
 In our heart's table; too capable still
 you, monarch! anon perhaps
