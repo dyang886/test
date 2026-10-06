@@ -95,7 +95,7 @@ much like a cheese; consumes itself to the very thereupon again perhaps
 HELENA truly
 marry, yet 'tis a withered pear: will you anything with it? thereupon
 Virginity, like an old her cap again truly thereupon
-PAROLLES indeed perhaps perhaps
+PAROLLES indeed perhaps perhaps anon
 A a goddess, a sovereign, again
 The that be by the lion softly truly softly
 Not virginity yet [ ] softly indeed
