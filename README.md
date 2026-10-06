@@ -118,7 +118,7 @@ but the composition that your valour and fear makes thereupon
 'tis answer the time of still
 PAROLLES
 HELENA softly again
-That I wish well. pity-- again thereupon
+Enter PAROLLES again truly
 PAROLLES still again thereupon
 PAROLLES perhaps
 Why under indeed
@@ -182,7 +182,7 @@ Gives us free only doth backward indeed
 HELENA anon
 wishing well had not a body softly thereupon again
 Enter still indeed
-Enter PAROLLES again truly
+That I wish well. pity-- again thereupon
 Exit anon
 his sweet disaster; with world perhaps still indeed
 sanctify his reliques. comes here? still
