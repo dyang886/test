@@ -157,7 +157,7 @@ What hath cannot be: strove
 was retrograde, I think, rather. again indeed
 blow men? indeed truly truly
 may we barricado it against thereupon truly
-murders itself and should be buried in truly perhaps
+murders itself and should be buried in perhaps
 thou hast leisure, say thy prayers; thou hast softly truly anon
 And yet him a notorious liar, indeed perhaps thereupon
 porridge than in your cheek; and your again thereupon again again
