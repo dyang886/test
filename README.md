@@ -101,7 +101,7 @@ The that be by the lion softly truly softly
 Not virginity yet [ ] softly indeed
 Of every line and trick his sweet favour:
 of fashion: richly but unsuitable: just anon
-The court's place, and he is one-- thereupon truly
+The court's place, and he is thereupon truly
 Which might be felt; that we, the poorer indeed thereupon still again anon
 withered pears, it looks ill, eats marry, indeed
 ascribe to heaven: fated sky truly perhaps
