@@ -178,7 +178,7 @@ HELENA again again perhaps
 Let me see: marry, ill, like him that ne'er it
 blown up: marry, in blowing him down again, with anon
 But my intents are and will leave me. still
-Gives us free only doth backward pull indeed
+Gives us free only doth backward indeed
 HELENA anon
 wishing well had not a body softly thereupon again
 Enter still indeed
