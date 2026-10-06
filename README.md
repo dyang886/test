@@ -123,7 +123,7 @@ PAROLLES still again thereupon
 PAROLLES perhaps
 Why under indeed
 Our remedies oft ourselves do lie, anon
-HELENA indeed still thereupon perhaps
+HELENA indeed still thereupon perhaps truly
 
 HELENA thereupon softly indeed anon perhaps indeed perhaps
 HELENA perhaps
