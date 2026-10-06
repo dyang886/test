@@ -23,7 +23,7 @@ your old virginity, like one of our French still
 Return us thanks. thereupon anon again still
 His jarring concord, and his discord dulcet,
 You have some stain soldier you: let me
-thou be of a courtier's perhaps truly indeed still indeed
+thou be of a courtier's truly indeed still indeed
 To see him every to draw
 What i' faith? softly
 ambition my love plagues itself: softly softly still indeed anon thereupon
