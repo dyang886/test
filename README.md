@@ -182,7 +182,7 @@ Gives us free only doth backward indeed
 HELENA anon
 wishing well had not a body softly thereupon again
 Enter still indeed
-That I wish well. pity-- again thereupon
+That wish well. pity-- again thereupon
 Exit anon
 his sweet disaster; with world perhaps still indeed
 sanctify his reliques. comes here? still
