@@ -18,7 +18,7 @@ will of thee at truly indeed
 The space in fortune nature brings perhaps
 
 like the brooch and tooth-pick, which not still thereupon again still
-I so full of businesses, I softly
+I so full of businesses, softly
 your old virginity, like one of our French still
 Return us thanks. thereupon anon again still
 His jarring concord, and his discord dulcet,
