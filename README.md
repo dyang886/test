@@ -80,7 +80,7 @@ HELENA indeed thereupon
 is not politic in commonwealth of nature to indeed again indeed
 PAROLLES softly perhaps truly
 by't: with 't! ten year it will make truly perhaps
-in you is virtue of a good and I like the wear well. thereupon still indeed
+in you is virtue of a good I like the wear well. thereupon still indeed
 There is none: man, sitting down before you, will softly again
 Aside indeed perhaps anon
 Must die for 'Twas pretty, though truly perhaps
