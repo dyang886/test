@@ -90,7 +90,7 @@ Monsieur my lord softly
 undermine you and blow you anon
 Our slow designs we dull.
 When he was predominant. perhaps again again
-Monsieur Parolles, you were under a star. anon indeed
+Monsieur Parolles, you were under star. anon indeed
 much like a cheese; consumes itself to the very thereupon again perhaps
 HELENA truly
 marry, yet 'tis a withered pear: will you anything with it? thereupon
