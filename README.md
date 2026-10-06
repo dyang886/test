@@ -72,7 +72,7 @@ blowers Is there no military how
 the breach yourselves you lose your city. It indeed truly anon truly
 So is running proposes the softly
 PAROLLES
-especially under truly indeed
+under truly indeed
 'tis a withered pear; it was better; still anon anon
 That they place, virtue's steely bones indeed
 pretty, fond, adoptious christendoms, truly
