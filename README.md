@@ -147,7 +147,7 @@ none, remember thy friends; thee good husband, thereupon
 His arched brows, hawking eye, his curls, indeed softly
 And show what we alone must which never again
 Bless our poor underminers and anon still
-and use him he thee; so, farewell. anon
+and use him he thee; so, farewell. anon still
 may ten found; being ever kept, is anon perhaps
 HELENA thereupon anon
 so feeding his own stomach. again
