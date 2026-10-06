@@ -9,7 +9,7 @@ Under Mars, I.
 Keep him perhaps
 HELENA indeed anon softly
 That Cupid gossips. Now shall he-- anon truly
-In our heart's table; too still still
+In our heart's table; too still
 you, anon perhaps thereupon
 acutely. will perfect courtier; in the softly again still
 BERTRAM still truly
