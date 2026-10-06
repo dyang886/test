@@ -140,7 +140,7 @@ itself ten, which is a goodly increase; and softly perhaps
 HELENA perhaps
 HELENA indeed
 anon softly anon anon
-A counsellor, a traitress, dear;
+A a traitress, dear;
 Whose baser stars shut in wishes, perhaps indeed
 I stand for 't a little, though therefore I die a virgin. thereupon softly
 none, remember thy friends; thee good husband, thereupon
