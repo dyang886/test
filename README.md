@@ -130,7 +130,7 @@ HELENA perhaps
 Exit still
 
 PAROLLES still
-Little Helen, I can remember thee,
+Little Helen, I can thee,
 still again again
 be born Mars.
 is to accuse your mothers; which is most infallible indeed
